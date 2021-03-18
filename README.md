@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-03-19 06:22:29
+最后更新时间 2021-03-19 07:21:17
 
 1. [三部门发布18个新职业](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%FD%B2%BF%C3%C5%B7%A2%B2%BC18%B8%F6%D0%C2%D6%B0%D2%B5) 4916693
 1. [西安新增1例本土确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%F7%B0%B2%D0%C2%D4%F61%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF%B2%A1%C0%FD) 4744609
@@ -40,12 +40,12 @@
 1. [亚足联宣布江苏队退出亚冠](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D1%C7%D7%E3%C1%AA%D0%FB%B2%BC%BD%AD%CB%D5%B6%D3%CD%CB%B3%F6%D1%C7%B9%DA) 2245298
 1. [78岁奶奶减肥逆袭成世界冠军](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=78%CB%EA%C4%CC%C4%CC%BC%F5%B7%CA%C4%E6%CF%AE%B3%C9%CA%C0%BD%E7%B9%DA%BE%FC) 2167759
 1. [7旬大爷在理发店3年消费235万](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=7%D1%AE%B4%F3%D2%AF%D4%DA%C0%ED%B7%A2%B5%EA3%C4%EA%CF%FB%B7%D1235%CD%F2) 2125534
+1. [李子柒旗下产品被指吃出烟头](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%EE%D7%D3%C6%E2%C6%EC%CF%C2%B2%FA%C6%B7%B1%BB%D6%B8%B3%D4%B3%F6%D1%CC%CD%B7) 2119683
 1. [俄罗斯召回驻美大使](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%ED%C2%DE%CB%B9%D5%D9%BB%D8%D7%A4%C3%C0%B4%F3%CA%B9) 2091887
 1. [卧底记者十八般武艺大赏](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%D4%B5%D7%BC%C7%D5%DF%CA%AE%B0%CB%B0%E3%CE%E4%D2%D5%B4%F3%C9%CD) 2018671
 1. [特斯拉回应长沙车主车辆爆胎](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%CB%B9%C0%AD%BB%D8%D3%A6%B3%A4%C9%B3%B3%B5%D6%F7%B3%B5%C1%BE%B1%AC%CC%A5) 1948018
 1. [男子连续打牌36小时 憋尿憋到休克](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%C1%AC%D0%F8%B4%F2%C5%C636%D0%A1%CA%B1%20%B1%EF%C4%F2%B1%EF%B5%BD%D0%DD%BF%CB) 1879837
 1. [人民日报四问校外培训乱象](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%CB%C3%F1%C8%D5%B1%A8%CB%C4%CE%CA%D0%A3%CD%E2%C5%E0%D1%B5%C2%D2%CF%F3) 1814043
-1. [李子柒旗下产品被指吃出烟头](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%EE%D7%D3%C6%E2%C6%EC%CF%C2%B2%FA%C6%B7%B1%BB%D6%B8%B3%D4%B3%F6%D1%CC%CD%B7) 1750551
 1. [20天4万次地震 冰岛人被震到失眠](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=20%CC%EC4%CD%F2%B4%CE%B5%D8%D5%F0%20%B1%F9%B5%BA%C8%CB%B1%BB%D5%F0%B5%BD%CA%A7%C3%DF) 1689282
 <!-- Rank End -->
 
