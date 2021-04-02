@@ -14,13 +14,14 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-02 22:23:33
+最后更新时间 2021-04-02 23:25:09
 
 1. [云南新增4例本土确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%C6%C4%CF%D0%C2%D4%F64%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF%B2%A1%C0%FD) 4919678
 1. [苏伊士运河货轮搁浅系船长错误操作](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%D5%D2%C1%CA%BF%D4%CB%BA%D3%BB%F5%C2%D6%B8%E9%C7%B3%CF%B5%B4%AC%B3%A4%B4%ED%CE%F3%B2%D9%D7%F7) 4916510
 1. [云南瑞丽市5地调整为中风险地区](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%C6%C4%CF%C8%F0%C0%F6%CA%D05%B5%D8%B5%F7%D5%FB%CE%AA%D6%D0%B7%E7%CF%D5%B5%D8%C7%F8) 4876907
 1. [华春莹称香港发展不靠外国恩赐施舍](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%AA%B4%BA%D3%A8%B3%C6%CF%E3%B8%DB%B7%A2%D5%B9%B2%BB%BF%BF%CD%E2%B9%FA%B6%F7%B4%CD%CA%A9%C9%E1) 4706215
 1. [直播:台铁列车脱轨事故救援现场](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%B1%B2%A5%3A%CC%A8%CC%FA%C1%D0%B3%B5%CD%D1%B9%EC%CA%C2%B9%CA%BE%C8%D4%AE%CF%D6%B3%A1) 4647448
+1. [台铁列车脱轨事故致50人死亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%A8%CC%FA%C1%D0%B3%B5%CD%D1%B9%EC%CA%C2%B9%CA%D6%C250%C8%CB%CB%C0%CD%F6) 4589439
 1. [新冠病毒疫苗接种34个问答](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%B9%DA%B2%A1%B6%BE%D2%DF%C3%E7%BD%D3%D6%D634%B8%F6%CE%CA%B4%F0) 4541498
 1. [侠客岛:谁是祸害新疆的内鬼](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CF%C0%BF%CD%B5%BA%3A%CB%AD%CA%C7%BB%F6%BA%A6%D0%C2%BD%AE%B5%C4%C4%DA%B9%ED) 4484788
 1. [台铁列车脱轨事故已致35人死亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%A8%CC%FA%C1%D0%B3%B5%CD%D1%B9%EC%CA%C2%B9%CA%D2%D1%D6%C235%C8%CB%CB%C0%CD%F6) 4424973
@@ -50,6 +51,7 @@
 1. [瑞丽急需流调人员和缅语翻译](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%F0%C0%F6%BC%B1%D0%E8%C1%F7%B5%F7%C8%CB%D4%B1%BA%CD%C3%E5%D3%EF%B7%AD%D2%EB) 3544719
 1. [华春莹要求日方停止搬弄是非](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%AA%B4%BA%D3%A8%D2%AA%C7%F3%C8%D5%B7%BD%CD%A3%D6%B9%B0%E1%C5%AA%CA%C7%B7%C7) 3539079
 1. [台铁事故遇难司机刚新婚不久](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%A8%CC%FA%CA%C2%B9%CA%D3%F6%C4%D1%CB%BE%BB%FA%B8%D5%D0%C2%BB%E9%B2%BB%BE%C3) 3522627
+1. [蔡英文就台铁事故发表声明](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B2%CC%D3%A2%CE%C4%BE%CD%CC%A8%CC%FA%CA%C2%B9%CA%B7%A2%B1%ED%C9%F9%C3%F7) 3451264
 1. [新疆教育厅原厅长带头编问题教材](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%BD%AE%BD%CC%D3%FD%CC%FC%D4%AD%CC%FC%B3%A4%B4%F8%CD%B7%B1%E0%CE%CA%CC%E2%BD%CC%B2%C4) 3445163
 1. [马来西亚外长用中文称呼王毅大哥](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C2%ED%C0%B4%CE%F7%D1%C7%CD%E2%B3%A4%D3%C3%D6%D0%CE%C4%B3%C6%BA%F4%CD%F5%D2%E3%B4%F3%B8%E7) 3442944
 1. [吴青峰著作权案胜诉后发文](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E2%C7%E0%B7%E5%D6%F8%D7%F7%C8%A8%B0%B8%CA%A4%CB%DF%BA%F3%B7%A2%CE%C4) 3415211
