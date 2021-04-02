@@ -14,14 +14,15 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-02 21:29:21
+最后更新时间 2021-04-02 22:23:33
 
 1. [云南新增4例本土确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%C6%C4%CF%D0%C2%D4%F64%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF%B2%A1%C0%FD) 4919678
 1. [苏伊士运河货轮搁浅系船长错误操作](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%D5%D2%C1%CA%BF%D4%CB%BA%D3%BB%F5%C2%D6%B8%E9%C7%B3%CF%B5%B4%AC%B3%A4%B4%ED%CE%F3%B2%D9%D7%F7) 4916510
 1. [云南瑞丽市5地调整为中风险地区](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%C6%C4%CF%C8%F0%C0%F6%CA%D05%B5%D8%B5%F7%D5%FB%CE%AA%D6%D0%B7%E7%CF%D5%B5%D8%C7%F8) 4876907
 1. [华春莹称香港发展不靠外国恩赐施舍](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%AA%B4%BA%D3%A8%B3%C6%CF%E3%B8%DB%B7%A2%D5%B9%B2%BB%BF%BF%CD%E2%B9%FA%B6%F7%B4%CD%CA%A9%C9%E1) 4706215
-1. [直播:台铁列车脱轨事故救援现场](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%B1%B2%A5%3A%CC%A8%CC%FA%C1%D0%B3%B5%CD%D1%B9%EC%CA%C2%B9%CA%BE%C8%D4%AE%CF%D6%B3%A1) 4581327
+1. [直播:台铁列车脱轨事故救援现场](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%B1%B2%A5%3A%CC%A8%CC%FA%C1%D0%B3%B5%CD%D1%B9%EC%CA%C2%B9%CA%BE%C8%D4%AE%CF%D6%B3%A1) 4647448
 1. [新冠病毒疫苗接种34个问答](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%B9%DA%B2%A1%B6%BE%D2%DF%C3%E7%BD%D3%D6%D634%B8%F6%CE%CA%B4%F0) 4541498
+1. [侠客岛:谁是祸害新疆的内鬼](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CF%C0%BF%CD%B5%BA%3A%CB%AD%CA%C7%BB%F6%BA%A6%D0%C2%BD%AE%B5%C4%C4%DA%B9%ED) 4484788
 1. [台铁列车脱轨事故已致35人死亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%A8%CC%FA%C1%D0%B3%B5%CD%D1%B9%EC%CA%C2%B9%CA%D2%D1%D6%C235%C8%CB%CB%C0%CD%F6) 4424973
 1. [教育部:小学生每日睡眠应达10小时](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%CC%D3%FD%B2%BF%3A%D0%A1%D1%A7%C9%FA%C3%BF%C8%D5%CB%AF%C3%DF%D3%A6%B4%EF10%D0%A1%CA%B1) 4420980
 1. [20余国驻华使节正在新疆参观访问](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=20%D3%E0%B9%FA%D7%A4%BB%AA%CA%B9%BD%DA%D5%FD%D4%DA%D0%C2%BD%AE%B2%CE%B9%DB%B7%C3%CE%CA) 4418133
@@ -40,6 +41,7 @@
 1. [王凯任河南副省长、代理省长](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F5%BF%AD%C8%CE%BA%D3%C4%CF%B8%B1%CA%A1%B3%A4%A1%A2%B4%FA%C0%ED%CA%A1%B3%A4) 3833786
 1. [深圳茶颜悦色已排队3万号](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%EE%DB%DA%B2%E8%D1%D5%D4%C3%C9%AB%D2%D1%C5%C5%B6%D33%CD%F2%BA%C5) 3831317
 1. [村霸变身村支书敛财近亿元](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%E5%B0%D4%B1%E4%C9%ED%B4%E5%D6%A7%CA%E9%C1%B2%B2%C6%BD%FC%D2%DA%D4%AA) 3800456
+1. [中朝将举行高层会晤?外交部回应](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B3%AF%BD%AB%BE%D9%D0%D0%B8%DF%B2%E3%BB%E1%CE%EE%3F%CD%E2%BD%BB%B2%BF%BB%D8%D3%A6) 3752999
 1. [罗永浩称6亿债务年底还完](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C2%DE%D3%C0%BA%C6%B3%C66%D2%DA%D5%AE%CE%F1%C4%EA%B5%D7%BB%B9%CD%EA) 3699603
 1. [张文宏:瑞丽疫情透露几个关键信息](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C5%CE%C4%BA%EA%3A%C8%F0%C0%F6%D2%DF%C7%E9%CD%B8%C2%B6%BC%B8%B8%F6%B9%D8%BC%FC%D0%C5%CF%A2) 3697221
 1. [中棉协:支持国外行业协会等赴新疆](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%C3%DE%D0%AD%3A%D6%A7%B3%D6%B9%FA%CD%E2%D0%D0%D2%B5%D0%AD%BB%E1%B5%C8%B8%B0%D0%C2%BD%AE) 3667440
@@ -51,6 +53,7 @@
 1. [新疆教育厅原厅长带头编问题教材](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%BD%AE%BD%CC%D3%FD%CC%FC%D4%AD%CC%FC%B3%A4%B4%F8%CD%B7%B1%E0%CE%CA%CC%E2%BD%CC%B2%C4) 3445163
 1. [马来西亚外长用中文称呼王毅大哥](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C2%ED%C0%B4%CE%F7%D1%C7%CD%E2%B3%A4%D3%C3%D6%D0%CE%C4%B3%C6%BA%F4%CD%F5%D2%E3%B4%F3%B8%E7) 3442944
 1. [吴青峰著作权案胜诉后发文](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E2%C7%E0%B7%E5%D6%F8%D7%F7%C8%A8%B0%B8%CA%A4%CB%DF%BA%F3%B7%A2%CE%C4) 3415211
+1. [央视评H&M被约谈:伤疤未好又闯祸](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D1%EB%CA%D3%C6%C0H%26M%B1%BB%D4%BC%CC%B8%3A%C9%CB%B0%CC%CE%B4%BA%C3%D3%D6%B4%B3%BB%F6) 3372565
 1. [男子微信群辱骂烈士被刑拘](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%CE%A2%D0%C5%C8%BA%C8%E8%C2%EE%C1%D2%CA%BF%B1%BB%D0%CC%BE%D0) 3324582
 1. [塞尔维亚总统采访中力挺中国](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%FB%B6%FB%CE%AC%D1%C7%D7%DC%CD%B3%B2%C9%B7%C3%D6%D0%C1%A6%CD%A6%D6%D0%B9%FA) 3322441
 1. [苏伊士运河堵塞是否影响中国外贸?](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%D5%D2%C1%CA%BF%D4%CB%BA%D3%B6%C2%C8%FB%CA%C7%B7%F1%D3%B0%CF%EC%D6%D0%B9%FA%CD%E2%C3%B3%3F) 3295679
@@ -58,7 +61,7 @@
 1. [宋仲基吃中国拌饭被韩国观众抵制](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%CE%D6%D9%BB%F9%B3%D4%D6%D0%B9%FA%B0%E8%B7%B9%B1%BB%BA%AB%B9%FA%B9%DB%D6%DA%B5%D6%D6%C6) 3185399
 1. [宁夏中卫北山铁矿遭疯狂超采](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%FE%CF%C4%D6%D0%CE%C0%B1%B1%C9%BD%CC%FA%BF%F3%D4%E2%B7%E8%BF%F1%B3%AC%B2%C9) 3180330
 1. [证人称弗洛伊德在案发现场已死亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%A4%C8%CB%B3%C6%B8%A5%C2%E5%D2%C1%B5%C2%D4%DA%B0%B8%B7%A2%CF%D6%B3%A1%D2%D1%CB%C0%CD%F6) 3165546
-1. [多所高校开设死亡教育课](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%E0%CB%F9%B8%DF%D0%A3%BF%AA%C9%E8%CB%C0%CD%F6%BD%CC%D3%FD%BF%CE) 3114726
+1. [多所高校开设死亡教育课](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%E0%CB%F9%B8%DF%D0%A3%BF%AA%C9%E8%CB%C0%CD%F6%BD%CC%D3%FD%BF%CE) 3140617
 1. [乌鲁木齐早市暴恐案现场首次公开](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%DA%C2%B3%C4%BE%C6%EB%D4%E7%CA%D0%B1%A9%BF%D6%B0%B8%CF%D6%B3%A1%CA%D7%B4%CE%B9%AB%BF%AA) 3095934
 1. [赵英俊没告诉妈妈自己得病](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%D4%D3%A2%BF%A1%C3%BB%B8%E6%CB%DF%C2%E8%C2%E8%D7%D4%BC%BA%B5%C3%B2%A1) 3093940
 1. [浙江黑老大虞关荣4年涉案40亿元](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%E3%BD%AD%BA%DA%C0%CF%B4%F3%D3%DD%B9%D8%C8%D94%C4%EA%C9%E6%B0%B840%D2%DA%D4%AA) 3069019
@@ -77,11 +80,11 @@
 1. [变形计尚成苍爷爷去世](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%E4%D0%CE%BC%C6%C9%D0%B3%C9%B2%D4%D2%AF%D2%AF%C8%A5%CA%C0) 2684732
 1. [陵园回应清明推文称就差你了](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C1%EA%D4%B0%BB%D8%D3%A6%C7%E5%C3%F7%CD%C6%CE%C4%B3%C6%BE%CD%B2%EE%C4%E3%C1%CB) 2683003
 1. [骑手与商家有矛盾在奶茶中放牙签](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%EF%CA%D6%D3%EB%C9%CC%BC%D2%D3%D0%C3%AC%B6%DC%D4%DA%C4%CC%B2%E8%D6%D0%B7%C5%D1%C0%C7%A9) 2661392
-1. [2021年成都世界大学生运动会将延期](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=2021%C4%EA%B3%C9%B6%BC%CA%C0%BD%E7%B4%F3%D1%A7%C9%FA%D4%CB%B6%AF%BB%E1%BD%AB%D1%D3%C6%DA) 2606492
+1. [2021年成都世界大学生运动会将延期](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=2021%C4%EA%B3%C9%B6%BC%CA%C0%BD%E7%B4%F3%D1%A7%C9%FA%D4%CB%B6%AF%BB%E1%BD%AB%D1%D3%C6%DA) 2628159
 1. [孙杨案重审听证会5月下旬举行](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%EF%D1%EE%B0%B8%D6%D8%C9%F3%CC%FD%D6%A4%BB%E15%D4%C2%CF%C2%D1%AE%BE%D9%D0%D0) 2590766
-1. [央视评H&M被约谈:伤疤未好又闯祸](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D1%EB%CA%D3%C6%C0H%26M%B1%BB%D4%BC%CC%B8%3A%C9%CB%B0%CC%CE%B4%BA%C3%D3%D6%B4%B3%BB%F6) 2589098
 1. [韩国30至39岁未婚者超半数啃老](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%AB%B9%FA30%D6%C139%CB%EA%CE%B4%BB%E9%D5%DF%B3%AC%B0%EB%CA%FD%BF%D0%C0%CF) 2568243
 1. [董明珠三十年没休过假](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%AD%C3%F7%D6%E9%C8%FD%CA%AE%C4%EA%C3%BB%D0%DD%B9%FD%BC%D9) 2556304
+1. [男子殴打女记者致死获刑15年](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%C5%B9%B4%F2%C5%AE%BC%C7%D5%DF%D6%C2%CB%C0%BB%F1%D0%CC15%C4%EA) 2536173
 1. [印五名男子没戴口罩被罚走"鸭子步"](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%CE%E5%C3%FB%C4%D0%D7%D3%C3%BB%B4%F7%BF%DA%D5%D6%B1%BB%B7%A3%D7%DF%22%D1%BC%D7%D3%B2%BD%22) 2500090
 1. [学生会干部要求学生淋雨听他训话](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D1%A7%C9%FA%BB%E1%B8%C9%B2%BF%D2%AA%C7%F3%D1%A7%C9%FA%C1%DC%D3%EA%CC%FD%CB%FB%D1%B5%BB%B0) 2498480
 1. [一季度64名民警辅警牺牲](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D2%BB%BC%BE%B6%C864%C3%FB%C3%F1%BE%AF%B8%A8%BE%AF%CE%FE%C9%FC) 2496372
