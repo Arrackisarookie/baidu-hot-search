@@ -14,12 +14,13 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-03 22:22:04
+最后更新时间 2021-04-03 23:24:13
 
 1. [苏伊士运河货轮搁浅系船长错误操作](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%D5%D2%C1%CA%BF%D4%CB%BA%D3%BB%F5%C2%D6%B8%E9%C7%B3%CF%B5%B4%AC%B3%A4%B4%ED%CE%F3%B2%D9%D7%F7) 4916448
 1. [台铁丧生司机曾躲过另一列车事故](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%A8%CC%FA%C9%A5%C9%FA%CB%BE%BB%FA%D4%F8%B6%E3%B9%FD%C1%ED%D2%BB%C1%D0%B3%B5%CA%C2%B9%CA) 4870193
 1. [瑞丽疫情病毒来自于缅甸](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%F0%C0%F6%D2%DF%C7%E9%B2%A1%B6%BE%C0%B4%D7%D4%D3%DA%C3%E5%B5%E9) 4862472
 1. [云南新增7例本土确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%C6%C4%CF%D0%C2%D4%F67%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF%B2%A1%C0%FD) 4846081
+1. [永远记住你](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%C0%D4%B6%BC%C7%D7%A1%C4%E3) 4748940
 1. [台铁列车脱轨事故致50人死亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%A8%CC%FA%C1%D0%B3%B5%CD%D1%B9%EC%CA%C2%B9%CA%D6%C250%C8%CB%CB%C0%CD%F6) 4744372
 1. [台湾列车脱轨事故部分罹难者名单](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%A8%CD%E5%C1%D0%B3%B5%CD%D1%B9%EC%CA%C2%B9%CA%B2%BF%B7%D6%EE%BE%C4%D1%D5%DF%C3%FB%B5%A5) 4692285
 1. [台铁事故死亡人数升至51人](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%A8%CC%FA%CA%C2%B9%CA%CB%C0%CD%F6%C8%CB%CA%FD%C9%FD%D6%C151%C8%CB) 4684657
@@ -44,7 +45,7 @@
 1. [中国新冠疫苗首次获得欧盟GMP认证](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%D0%C2%B9%DA%D2%DF%C3%E7%CA%D7%B4%CE%BB%F1%B5%C3%C5%B7%C3%CBGMP%C8%CF%D6%A4) 3926639
 1. [北京新增1例境外输入确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%D0%C2%D4%F61%C0%FD%BE%B3%CD%E2%CA%E4%C8%EB%C8%B7%D5%EF%B2%A1%C0%FD) 3913402
 1. [老人每周为亡妻买3支玫瑰](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%CF%C8%CB%C3%BF%D6%DC%CE%AA%CD%F6%C6%DE%C2%F23%D6%A7%C3%B5%B9%E5) 3849654
-1. [80后90后立遗嘱4年翻近6倍](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=80%BA%F390%BA%F3%C1%A2%D2%C5%D6%F64%C4%EA%B7%AD%BD%FC6%B1%B6) 3834950
+1. [80后90后立遗嘱4年翻近6倍](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=80%BA%F390%BA%F3%C1%A2%D2%C5%D6%F64%C4%EA%B7%AD%BD%FC6%B1%B6) 3834958
 1. [中朝将举行高层会晤?外交部回应](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B3%AF%BD%AB%BE%D9%D0%D0%B8%DF%B2%E3%BB%E1%CE%EE%3F%CD%E2%BD%BB%B2%BF%BB%D8%D3%A6) 3831269
 1. [2020年因公牺牲民警名单公布](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=2020%C4%EA%D2%F2%B9%AB%CE%FE%C9%FC%C3%F1%BE%AF%C3%FB%B5%A5%B9%AB%B2%BC) 3789206
 1. [苏伊士运河排队船只已接近全部通过](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%D5%D2%C1%CA%BF%D4%CB%BA%D3%C5%C5%B6%D3%B4%AC%D6%BB%D2%D1%BD%D3%BD%FC%C8%AB%B2%BF%CD%A8%B9%FD) 3776433
@@ -57,7 +58,7 @@
 1. [3D还原台铁列车脱轨事故](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=3D%BB%B9%D4%AD%CC%A8%CC%FA%C1%D0%B3%B5%CD%D1%B9%EC%CA%C2%B9%CA) 3534207
 1. [台铁列车事故驾驶视角曝光](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%A8%CC%FA%C1%D0%B3%B5%CA%C2%B9%CA%BC%DD%CA%BB%CA%D3%BD%C7%C6%D8%B9%E2) 3528604
 1. [台铁事故列车行车记录仪找到](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%A8%CC%FA%CA%C2%B9%CA%C1%D0%B3%B5%D0%D0%B3%B5%BC%C7%C2%BC%D2%C7%D5%D2%B5%BD) 3522868
-1. [母子祭祖引发山火被刑拘](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%B8%D7%D3%BC%C0%D7%E6%D2%FD%B7%A2%C9%BD%BB%F0%B1%BB%D0%CC%BE%D0) 3446209
+1. [母子祭祖引发山火被刑拘](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%B8%D7%D3%BC%C0%D7%E6%D2%FD%B7%A2%C9%BD%BB%F0%B1%BB%D0%CC%BE%D0) 3446216
 1. [央视评H&M被约谈:伤疤未好又闯祸](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D1%EB%CA%D3%C6%C0H%26M%B1%BB%D4%BC%CC%B8%3A%C9%CB%B0%CC%CE%B4%BA%C3%D3%D6%B4%B3%BB%F6) 3442901
 1. [戍边战士牺牲后的第一个清明节](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%F9%B1%DF%D5%BD%CA%BF%CE%FE%C9%FC%BA%F3%B5%C4%B5%DA%D2%BB%B8%F6%C7%E5%C3%F7%BD%DA) 3410510
 1. [抗疫英烈女儿给爸爸的一封信](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BF%B9%D2%DF%D3%A2%C1%D2%C5%AE%B6%F9%B8%F8%B0%D6%B0%D6%B5%C4%D2%BB%B7%E2%D0%C5) 3405103
@@ -92,7 +93,7 @@
 1. [学生会干部要求学生淋雨听他训话](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D1%A7%C9%FA%BB%E1%B8%C9%B2%BF%D2%AA%C7%F3%D1%A7%C9%FA%C1%DC%D3%EA%CC%FD%CB%FB%D1%B5%BB%B0) 2498448
 1. [张子枫帮王圣迪整理头发](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C5%D7%D3%B7%E3%B0%EF%CD%F5%CA%A5%B5%CF%D5%FB%C0%ED%CD%B7%B7%A2) 2467002
 1. [微软天价合同为美军打造AR头盔](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%A2%C8%ED%CC%EC%BC%DB%BA%CF%CD%AC%CE%AA%C3%C0%BE%FC%B4%F2%D4%ECAR%CD%B7%BF%F8) 2432305
-1. [利路修听到名次的表情变化](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%FB%C2%B7%D0%DE%CC%FD%B5%BD%C3%FB%B4%CE%B5%C4%B1%ED%C7%E9%B1%E4%BB%AF) 2413319
+1. [利路修听到名次的表情变化](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%FB%C2%B7%D0%DE%CC%FD%B5%BD%C3%FB%B4%CE%B5%C4%B1%ED%C7%E9%B1%E4%BB%AF) 2413324
 1. [深圳茶颜悦色已排队3万号](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%EE%DB%DA%B2%E8%D1%D5%D4%C3%C9%AB%D2%D1%C5%C5%B6%D33%CD%F2%BA%C5) 2411002
 1. [国际泳联取消跳水世界杯](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FA%BC%CA%D3%BE%C1%AA%C8%A1%CF%FB%CC%F8%CB%AE%CA%C0%BD%E7%B1%AD) 2304728
 1. [吴磊把粉丝送的笋吃了](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E2%C0%DA%B0%D1%B7%DB%CB%BF%CB%CD%B5%C4%CB%F1%B3%D4%C1%CB) 2301074
