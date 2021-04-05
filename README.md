@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-05 10:43:12
+最后更新时间 2021-04-05 11:29:36
 
 1. [中国驻朝鲜大使馆祭奠志愿军先烈](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%D7%A4%B3%AF%CF%CA%B4%F3%CA%B9%B9%DD%BC%C0%B5%EC%D6%BE%D4%B8%BE%FC%CF%C8%C1%D2) 4908442
 1. [云南新增确诊15例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%C6%C4%CF%D0%C2%D4%F6%C8%B7%D5%EF15%C0%FD) 4893511
@@ -43,6 +43,7 @@
 1. [印尼暴雨引发山洪致至少44死](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%C4%E1%B1%A9%D3%EA%D2%FD%B7%A2%C9%BD%BA%E9%D6%C2%D6%C1%C9%D944%CB%C0) 2775752
 1. [安徽一大学生拒服兵役被处罚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%B2%BB%D5%D2%BB%B4%F3%D1%A7%C9%FA%BE%DC%B7%FE%B1%F8%D2%DB%B1%BB%B4%A6%B7%A3) 2678601
 1. [台铁出轨列车第五节车厢被拖出](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%A8%CC%FA%B3%F6%B9%EC%C1%D0%B3%B5%B5%DA%CE%E5%BD%DA%B3%B5%CF%E1%B1%BB%CD%CF%B3%F6) 2670453
+1. [台铁事故肇事者事发后站山坡张望](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%A8%CC%FA%CA%C2%B9%CA%D5%D8%CA%C2%D5%DF%CA%C2%B7%A2%BA%F3%D5%BE%C9%BD%C6%C2%D5%C5%CD%FB) 2613928
 1. [美国亚裔一商店遭打砸](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%D1%C7%D2%E1%D2%BB%C9%CC%B5%EA%D4%E2%B4%F2%D4%D2) 2584850
 1. [专家回应别人打了疫苗我就不用打](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D7%A8%BC%D2%BB%D8%D3%A6%B1%F0%C8%CB%B4%F2%C1%CB%D2%DF%C3%E7%CE%D2%BE%CD%B2%BB%D3%C3%B4%F2) 2576987
 1. [接触网挂风筝致沪宁高铁晚点](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%D3%B4%A5%CD%F8%B9%D2%B7%E7%F3%DD%D6%C2%BB%A6%C4%FE%B8%DF%CC%FA%CD%ED%B5%E3) 2494380
@@ -50,6 +51,7 @@
 1. [李菲儿为假唱道歉](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%EE%B7%C6%B6%F9%CE%AA%BC%D9%B3%AA%B5%C0%C7%B8) 2425922
 1. [张文宏谈何时能自由出行](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C5%CE%C4%BA%EA%CC%B8%BA%CE%CA%B1%C4%DC%D7%D4%D3%C9%B3%F6%D0%D0) 2407077
 1. [永远记住你](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%C0%D4%B6%BC%C7%D7%A1%C4%E3) 2399755
+1. [阮春福当选越南新一任国家主席](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%EE%B4%BA%B8%A3%B5%B1%D1%A1%D4%BD%C4%CF%D0%C2%D2%BB%C8%CE%B9%FA%BC%D2%D6%F7%CF%AF) 2348960
 1. [95后女入殓师:收入不高对象难找](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=95%BA%F3%C5%AE%C8%EB%E9%E7%CA%A6%3A%CA%D5%C8%EB%B2%BB%B8%DF%B6%D4%CF%F3%C4%D1%D5%D2) 2276241
 1. [重庆一景区清明推出麻将造型青团](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D8%C7%EC%D2%BB%BE%B0%C7%F8%C7%E5%C3%F7%CD%C6%B3%F6%C2%E9%BD%AB%D4%EC%D0%CD%C7%E0%CD%C5) 2241530
 1. [魅族科技就清明节广告文案道歉](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%F7%C8%D7%E5%BF%C6%BC%BC%BE%CD%C7%E5%C3%F7%BD%DA%B9%E3%B8%E6%CE%C4%B0%B8%B5%C0%C7%B8) 2224753
