@@ -14,11 +14,12 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-13 15:25:43
+最后更新时间 2021-04-13 16:27:41
 
 1. [日本拟决定核废水排海 外交部回应](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%C4%E2%BE%F6%B6%A8%BA%CB%B7%CF%CB%AE%C5%C5%BA%A3%20%CD%E2%BD%BB%B2%BF%BB%D8%D3%A6) 4900403
 1. [日本决定将核污水排入海 中方回应](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%BE%F6%B6%A8%BD%AB%BA%CB%CE%DB%CB%AE%C5%C5%C8%EB%BA%A3%20%D6%D0%B7%BD%BB%D8%D3%A6) 4895729
 1. [日本决定将福岛核污水排入大海](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%BE%F6%B6%A8%BD%AB%B8%A3%B5%BA%BA%CB%CE%DB%CB%AE%C5%C5%C8%EB%B4%F3%BA%A3) 4890542
+1. [韩国民众抗议日本排污进海](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%AB%B9%FA%C3%F1%D6%DA%BF%B9%D2%E9%C8%D5%B1%BE%C5%C5%CE%DB%BD%F8%BA%A3) 4796553
 1. [海南省长回应三亚海胆事件](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%A3%C4%CF%CA%A1%B3%A4%BB%D8%D3%A6%C8%FD%D1%C7%BA%A3%B5%A8%CA%C2%BC%FE) 4728889
 1. [31省份新增确诊9例:本土1例在云南](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%B7%DD%D0%C2%D4%F6%C8%B7%D5%EF9%C0%FD%3A%B1%BE%CD%C11%C0%FD%D4%DA%D4%C6%C4%CF) 4724378
 1. [美国务卿发推感谢日方明显努力](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%CE%F1%C7%E4%B7%A2%CD%C6%B8%D0%D0%BB%C8%D5%B7%BD%C3%F7%CF%D4%C5%AC%C1%A6) 4559025
@@ -28,18 +29,20 @@
 1. [中国移动回应收43个月漫游费](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%D2%C6%B6%AF%BB%D8%D3%A6%CA%D543%B8%F6%D4%C2%C2%FE%D3%CE%B7%D1) 4266955
 1. [蚂蚁集团回应再次被约谈](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C2%EC%D2%CF%BC%AF%CD%C5%BB%D8%D3%A6%D4%D9%B4%CE%B1%BB%D4%BC%CC%B8) 4249532
 1. [100秒混剪解放军霸气喊话](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=100%C3%EB%BB%EC%BC%F4%BD%E2%B7%C5%BE%FC%B0%D4%C6%F8%BA%B0%BB%B0) 4245478
+1. [岳云鹏拒绝王菲好友申请](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%C0%D4%C6%C5%F4%BE%DC%BE%F8%CD%F5%B7%C6%BA%C3%D3%D1%C9%EA%C7%EB) 4159475
 1. [人脸识别黑产:真人认证视频百元1套](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%CB%C1%B3%CA%B6%B1%F0%BA%DA%B2%FA%3A%D5%E6%C8%CB%C8%CF%D6%A4%CA%D3%C6%B5%B0%D9%D4%AA1%CC%D7) 4096886
 1. [解放军连续11天巡航台空域](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%E2%B7%C5%BE%FC%C1%AC%D0%F811%CC%EC%D1%B2%BA%BD%CC%A8%BF%D5%D3%F2) 3957270
 1. [何炅父亲被强制执行](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%CE%EA%C1%B8%B8%C7%D7%B1%BB%C7%BF%D6%C6%D6%B4%D0%D0) 3953495
 1. [刘嘉玲回应删Angelababy好友](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C1%F5%BC%CE%C1%E1%BB%D8%D3%A6%C9%BEAngelababy%BA%C3%D3%D1) 3914047
+1. [让男童闻脚红黄蓝助教被辞退](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%C3%C4%D0%CD%AF%CE%C5%BD%C5%BA%EC%BB%C6%C0%B6%D6%FA%BD%CC%B1%BB%B4%C7%CD%CB) 3873407
 1. [高速路口62万车主违章？官方回应](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B8%DF%CB%D9%C2%B7%BF%DA62%CD%F2%B3%B5%D6%F7%CE%A5%D5%C2%A3%BF%B9%D9%B7%BD%BB%D8%D3%A6) 3818766
 1. [茅台医院年薪60万加房产招主任医师](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%A9%CC%A8%D2%BD%D4%BA%C4%EA%D0%BD60%CD%F2%BC%D3%B7%BF%B2%FA%D5%D0%D6%F7%C8%CE%D2%BD%CA%A6) 3815123
+1. [核污水排海后海鲜还能吃吗](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%CB%CE%DB%CB%AE%C5%C5%BA%A3%BA%F3%BA%A3%CF%CA%BB%B9%C4%DC%B3%D4%C2%F0) 3737838
 1. [蚂蚁集团整体申设为金融控股公司](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C2%EC%D2%CF%BC%AF%CD%C5%D5%FB%CC%E5%C9%EA%C9%E8%CE%AA%BD%F0%C8%DA%BF%D8%B9%C9%B9%AB%CB%BE) 3685109
 1. [爷爷狂风暴雨般给孙女洗脸](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D2%AF%D2%AF%BF%F1%B7%E7%B1%A9%D3%EA%B0%E3%B8%F8%CB%EF%C5%AE%CF%B4%C1%B3) 3681594
 1. [3名小学生离家出走吃光民警口粮](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=3%C3%FB%D0%A1%D1%A7%C9%FA%C0%EB%BC%D2%B3%F6%D7%DF%B3%D4%B9%E2%C3%F1%BE%AF%BF%DA%C1%B8) 3644859
 1. [Ella晒全家福为儿子庆生](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=Ella%C9%B9%C8%AB%BC%D2%B8%A3%CE%AA%B6%F9%D7%D3%C7%EC%C9%FA) 3570710
 1. [数字人民币增加6个试点测试地区](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%FD%D7%D6%C8%CB%C3%F1%B1%D2%D4%F6%BC%D36%B8%F6%CA%D4%B5%E3%B2%E2%CA%D4%B5%D8%C7%F8) 3556130
-1. [核污水排海后海鲜还能吃吗](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%CB%CE%DB%CB%AE%C5%C5%BA%A3%BA%F3%BA%A3%CF%CA%BB%B9%C4%DC%B3%D4%C2%F0) 3552738
 1. [UFO现身美海军编队上空](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=UFO%CF%D6%C9%ED%C3%C0%BA%A3%BE%FC%B1%E0%B6%D3%C9%CF%BF%D5) 3548974
 1. [共享充电宝归还后仍计费](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%B2%CF%ED%B3%E4%B5%E7%B1%A6%B9%E9%BB%B9%BA%F3%C8%D4%BC%C6%B7%D1) 3428392
 1. [沙尘天气14日起再袭西北华北](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%B3%B3%BE%CC%EC%C6%F814%C8%D5%C6%F0%D4%D9%CF%AE%CE%F7%B1%B1%BB%AA%B1%B1) 3394183
