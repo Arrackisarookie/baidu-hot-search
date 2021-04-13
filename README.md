@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-14 03:22:52
+最后更新时间 2021-04-14 05:20:44
 
 1. [中国女足晋级东京奥运会](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%C5%AE%D7%E3%BD%FA%BC%B6%B6%AB%BE%A9%B0%C2%D4%CB%BB%E1) 4873930
 1. [华春莹反问日本核废水排放决定](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%AA%B4%BA%D3%A8%B7%B4%CE%CA%C8%D5%B1%BE%BA%CB%B7%CF%CB%AE%C5%C5%B7%C5%BE%F6%B6%A8) 4703343
@@ -38,8 +38,8 @@
 1. [华为称6G在2030年推向市场](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%AA%CE%AA%B3%C66G%D4%DA2030%C4%EA%CD%C6%CF%F2%CA%D0%B3%A1) 2476842
 1. [Siri透露苹果发布会日期](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=Siri%CD%B8%C2%B6%C6%BB%B9%FB%B7%A2%B2%BC%BB%E1%C8%D5%C6%DA) 2405857
 1. [佛山优化天量罚单高速岔口](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B7%F0%C9%BD%D3%C5%BB%AF%CC%EC%C1%BF%B7%A3%B5%A5%B8%DF%CB%D9%B2%ED%BF%DA) 2390152
+1. [五月中内地居民赴港豁免14天检疫](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E5%D4%C2%D6%D0%C4%DA%B5%D8%BE%D3%C3%F1%B8%B0%B8%DB%BB%ED%C3%E214%CC%EC%BC%EC%D2%DF) 2360544
 1. [3名小学生离家出走吃光民警口粮](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=3%C3%FB%D0%A1%D1%A7%C9%FA%C0%EB%BC%D2%B3%F6%D7%DF%B3%D4%B9%E2%C3%F1%BE%AF%BF%DA%C1%B8) 2321652
-1. [五月中内地居民赴港豁免14天检疫](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E5%D4%C2%D6%D0%C4%DA%B5%D8%BE%D3%C3%F1%B8%B0%B8%DB%BB%ED%C3%E214%CC%EC%BC%EC%D2%DF) 2306144
 1. [20万吨退役电池大量流入黑市](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=20%CD%F2%B6%D6%CD%CB%D2%DB%B5%E7%B3%D8%B4%F3%C1%BF%C1%F7%C8%EB%BA%DA%CA%D0) 2225769
 1. [40大城市人均收入排行](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=40%B4%F3%B3%C7%CA%D0%C8%CB%BE%F9%CA%D5%C8%EB%C5%C5%D0%D0) 2161980
 1. [董事长拒绝住院5天后猝死](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%AD%CA%C2%B3%A4%BE%DC%BE%F8%D7%A1%D4%BA5%CC%EC%BA%F3%E2%A7%CB%C0) 2147867
