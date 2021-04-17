@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-18 06:26:23
+最后更新时间 2021-04-18 07:22:18
 
 1. [中国已接种新冠疫苗18736.8万剂次](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%D2%D1%BD%D3%D6%D6%D0%C2%B9%DA%D2%DF%C3%E718736.8%CD%F2%BC%C1%B4%CE) 4881163
 1. [美日联合声明提台湾 系52年来首次](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%C8%D5%C1%AA%BA%CF%C9%F9%C3%F7%CC%E1%CC%A8%CD%E5%20%CF%B552%C4%EA%C0%B4%CA%D7%B4%CE) 4710322
@@ -42,7 +42,7 @@
 1. [男子挪7千万公款炒股亏买房赚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%C5%B27%C7%A7%CD%F2%B9%AB%BF%EE%B3%B4%B9%C9%BF%F7%C2%F2%B7%BF%D7%AC) 2003116
 1. [匠人用大米做出三星堆黄金面具](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%B3%C8%CB%D3%C3%B4%F3%C3%D7%D7%F6%B3%F6%C8%FD%D0%C7%B6%D1%BB%C6%BD%F0%C3%E6%BE%DF) 1933007
 1. [李慧珍成功追星龚俊](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%EE%BB%DB%D5%E4%B3%C9%B9%A6%D7%B7%D0%C7%B9%A8%BF%A1) 1865352
-1. [酒店保安拒绝120乘电梯救人](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BE%C6%B5%EA%B1%A3%B0%B2%BE%DC%BE%F8120%B3%CB%B5%E7%CC%DD%BE%C8%C8%CB) 1811342
+1. [酒店保安拒绝120乘电梯救人](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BE%C6%B5%EA%B1%A3%B0%B2%BE%DC%BE%F8120%B3%CB%B5%E7%CC%DD%BE%C8%C8%CB) 1838994
 1. [白敬亭录密室大逃脱前后的鞋子对比](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%D7%BE%B4%CD%A4%C2%BC%C3%DC%CA%D2%B4%F3%CC%D3%CD%D1%C7%B0%BA%F3%B5%C4%D0%AC%D7%D3%B6%D4%B1%C8) 1800064
 1. [水滴公司提交IPO申请](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%AE%B5%CE%B9%AB%CB%BE%CC%E1%BD%BBIPO%C9%EA%C7%EB) 1775498
 1. [韦德成为爵士老板引热议](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%A4%B5%C2%B3%C9%CE%AA%BE%F4%CA%BF%C0%CF%B0%E5%D2%FD%C8%C8%D2%E9) 1737062
