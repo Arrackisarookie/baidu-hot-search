@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-18 03:20:28
+最后更新时间 2021-04-18 04:22:31
 
 1. [中国已接种新冠疫苗18736.8万剂次](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%D2%D1%BD%D3%D6%D6%D0%C2%B9%DA%D2%DF%C3%E718736.8%CD%F2%BC%C1%B4%CE) 4881163
 1. [美日联合声明提台湾 系52年来首次](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%C8%D5%C1%AA%BA%CF%C9%F9%C3%F7%CC%E1%CC%A8%CD%E5%20%CF%B552%C4%EA%C0%B4%CA%D7%B4%CE) 4710322
