@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-18 16:25:48
+最后更新时间 2021-04-18 17:23:39
 
 1. [中美发表应对气候危机联合声明](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%C3%C0%B7%A2%B1%ED%D3%A6%B6%D4%C6%F8%BA%F2%CE%A3%BB%FA%C1%AA%BA%CF%C9%F9%C3%F7) 4884229
 1. [中国已接种新冠疫苗18736.8万剂次](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%D2%D1%BD%D3%D6%D6%D0%C2%B9%DA%D2%DF%C3%E718736.8%CD%F2%BC%C1%B4%CE) 4881163
@@ -34,8 +34,10 @@
 1. [外交部:中国永远不会允许台湾独立](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%E2%BD%BB%B2%BF%3A%D6%D0%B9%FA%D3%C0%D4%B6%B2%BB%BB%E1%D4%CA%D0%ED%CC%A8%CD%E5%B6%C0%C1%A2) 3944208
 1. [知名导演曝陈乔恩将与艾伦结婚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%AA%C3%FB%B5%BC%D1%DD%C6%D8%B3%C2%C7%C7%B6%F7%BD%AB%D3%EB%B0%AC%C2%D7%BD%E1%BB%E9) 3941733
 1. [31省新增16例确诊均为境外输入](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%D0%C2%D4%F616%C0%FD%C8%B7%D5%EF%BE%F9%CE%AA%BE%B3%CD%E2%CA%E4%C8%EB) 3933291
+1. [外交部回应是否有台湾回归的时间表](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%E2%BD%BB%B2%BF%BB%D8%D3%A6%CA%C7%B7%F1%D3%D0%CC%A8%CD%E5%BB%D8%B9%E9%B5%C4%CA%B1%BC%E4%B1%ED) 3832905
 1. [中国超2亿人单身](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%B3%AC2%D2%DA%C8%CB%B5%A5%C9%ED) 3806161
 1. [律师解读男子用5万冥币包养女孩](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C2%C9%CA%A6%BD%E2%B6%C1%C4%D0%D7%D3%D3%C35%CD%F2%DA%A4%B1%D2%B0%FC%D1%F8%C5%AE%BA%A2) 3803772
+1. [女子5年4次提离婚被拒：未同意复合](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%AE%D7%D35%C4%EA4%B4%CE%CC%E1%C0%EB%BB%E9%B1%BB%BE%DC%A3%BA%CE%B4%CD%AC%D2%E2%B8%B4%BA%CF) 3698754
 1. [黄小蕾承认追过大张伟](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%C6%D0%A1%C0%D9%B3%D0%C8%CF%D7%B7%B9%FD%B4%F3%D5%C5%CE%B0) 3672945
 1. [海南离岛免税店已达10家](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%A3%C4%CF%C0%EB%B5%BA%C3%E2%CB%B0%B5%EA%D2%D1%B4%EF10%BC%D2) 3670640
 1. [张萌凌晨三四点给员工发信息](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C5%C3%C8%C1%E8%B3%BF%C8%FD%CB%C4%B5%E3%B8%F8%D4%B1%B9%A4%B7%A2%D0%C5%CF%A2) 3665161
@@ -46,6 +48,7 @@
 1. [乐玉成称中美之间应是良性竞争](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%D6%D3%F1%B3%C9%B3%C6%D6%D0%C3%C0%D6%AE%BC%E4%D3%A6%CA%C7%C1%BC%D0%D4%BE%BA%D5%F9) 3489294
 1. [大巴被限高杆削顶致1死6伤](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%F3%B0%CD%B1%BB%CF%DE%B8%DF%B8%CB%CF%F7%B6%A5%D6%C21%CB%C06%C9%CB) 3420339
 1. [警方通报广西数十人并排堵路](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BE%AF%B7%BD%CD%A8%B1%A8%B9%E3%CE%F7%CA%FD%CA%AE%C8%CB%B2%A2%C5%C5%B6%C2%C2%B7) 3418192
+1. [美总统特使当着韩方说美国相信日本](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%D7%DC%CD%B3%CC%D8%CA%B9%B5%B1%D7%C5%BA%AB%B7%BD%CB%B5%C3%C0%B9%FA%CF%E0%D0%C5%C8%D5%B1%BE) 3323819
 1. [快递包裹暂放路边被老太拿走24个](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BF%EC%B5%DD%B0%FC%B9%FC%D4%DD%B7%C5%C2%B7%B1%DF%B1%BB%C0%CF%CC%AB%C4%C3%D7%DF24%B8%F6) 3300627
 1. [郑恺透露今年办婚礼](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%A3%E2%FD%CD%B8%C2%B6%BD%F1%C4%EA%B0%EC%BB%E9%C0%F1) 3298555
 1. [柯南剧场版票房破亿](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BF%C2%C4%CF%BE%E7%B3%A1%B0%E6%C6%B1%B7%BF%C6%C6%D2%DA) 3185105
@@ -53,8 +56,10 @@
 1. [陈乔恩方否认结婚计划](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B3%C2%C7%C7%B6%F7%B7%BD%B7%F1%C8%CF%BD%E1%BB%E9%BC%C6%BB%AE) 3178354
 1. [高空索降军犬抱紧特战队员胳膊](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B8%DF%BF%D5%CB%F7%BD%B5%BE%FC%C8%AE%B1%A7%BD%F4%CC%D8%D5%BD%B6%D3%D4%B1%B8%EC%B2%B2) 3071697
 1. [伯恩斯或将出任美国驻中国大使](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B2%AE%B6%F7%CB%B9%BB%F2%BD%AB%B3%F6%C8%CE%C3%C0%B9%FA%D7%A4%D6%D0%B9%FA%B4%F3%CA%B9) 3065118
+1. [刺死霸凌者获刑8年男子刑满释放](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%CC%CB%C0%B0%D4%C1%E8%D5%DF%BB%F1%D0%CC8%C4%EA%C4%D0%D7%D3%D0%CC%C2%FA%CA%CD%B7%C5) 2986890
 1. [巴黎圣母院计划2024奥运前重开](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%CD%C0%E8%CA%A5%C4%B8%D4%BA%BC%C6%BB%AE2024%B0%C2%D4%CB%C7%B0%D6%D8%BF%AA) 2966049
 1. [京剧表演艺术家杜近芳逝世](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BE%A9%BE%E7%B1%ED%D1%DD%D2%D5%CA%F5%BC%D2%B6%C5%BD%FC%B7%BC%CA%C5%CA%C0) 2919941
+1. [首尔现20万元一平米天价住宅](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%D7%B6%FB%CF%D620%CD%F2%D4%AA%D2%BB%C6%BD%C3%D7%CC%EC%BC%DB%D7%A1%D5%AC) 2882349
 1. [加密货币出现崩盘式行情](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%D3%C3%DC%BB%F5%B1%D2%B3%F6%CF%D6%B1%C0%C5%CC%CA%BD%D0%D0%C7%E9) 2862237
 1. [武汉女子离婚朋友拉横幅庆祝](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E4%BA%BA%C5%AE%D7%D3%C0%EB%BB%E9%C5%F3%D3%D1%C0%AD%BA%E1%B7%F9%C7%EC%D7%A3) 2860441
 1. [火影忍者动画导演去世](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%F0%D3%B0%C8%CC%D5%DF%B6%AF%BB%AD%B5%BC%D1%DD%C8%A5%CA%C0) 2762059
@@ -66,6 +71,7 @@
 1. [6月1日起推行财产和行为税合并申报](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=6%D4%C21%C8%D5%C6%F0%CD%C6%D0%D0%B2%C6%B2%FA%BA%CD%D0%D0%CE%AA%CB%B0%BA%CF%B2%A2%C9%EA%B1%A8) 2570484
 1. [印度首都新冠防治医疗资源告急](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%B6%C8%CA%D7%B6%BC%D0%C2%B9%DA%B7%C0%D6%CE%D2%BD%C1%C6%D7%CA%D4%B4%B8%E6%BC%B1) 2482075
 1. [广西警方通报37岁男子杀害5人](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%CE%F7%BE%AF%B7%BD%CD%A8%B1%A837%CB%EA%C4%D0%D7%D3%C9%B1%BA%A65%C8%CB) 2480517
+1. [游客喂大象时被卷起暴摔](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%CE%BF%CD%CE%B9%B4%F3%CF%F3%CA%B1%B1%BB%BE%ED%C6%F0%B1%A9%CB%A4) 2412032
 1. [拜登承认边境移民潮是场危机](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%DD%B5%C7%B3%D0%C8%CF%B1%DF%BE%B3%D2%C6%C3%F1%B3%B1%CA%C7%B3%A1%CE%A3%BB%FA) 2395202
 1. [王冰冰体验冲浪](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F5%B1%F9%B1%F9%CC%E5%D1%E9%B3%E5%C0%CB) 2393699
 1. [巴萨夺得国王杯冠军](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%CD%C8%F8%B6%E1%B5%C3%B9%FA%CD%F5%B1%AD%B9%DA%BE%FC) 2391594
