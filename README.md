@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-18 21:27:15
+最后更新时间 2021-04-18 22:21:14
 
 1. [外交部回应是否有台湾回归的时间表](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%E2%BD%BB%B2%BF%BB%D8%D3%A6%CA%C7%B7%F1%D3%D0%CC%A8%CD%E5%BB%D8%B9%E9%B5%C4%CA%B1%BC%E4%B1%ED) 4906477
 1. [中美发表应对气候危机联合声明](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%C3%C0%B7%A2%B1%ED%D3%A6%B6%D4%C6%F8%BA%F2%CE%A3%BB%FA%C1%AA%BA%CF%C9%F9%C3%F7) 4884229
@@ -65,6 +65,7 @@
 1. [湖南一轿车与公交车相撞致4死2伤](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%FE%C4%CF%D2%BB%BD%CE%B3%B5%D3%EB%B9%AB%BD%BB%B3%B5%CF%E0%D7%B2%D6%C24%CB%C02%C9%CB) 3087627
 1. [高空索降军犬抱紧特战队员胳膊](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B8%DF%BF%D5%CB%F7%BD%B5%BE%FC%C8%AE%B1%A7%BD%F4%CC%D8%D5%BD%B6%D3%D4%B1%B8%EC%B2%B2) 3071697
 1. [伯恩斯或将出任美国驻中国大使](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B2%AE%B6%F7%CB%B9%BB%F2%BD%AB%B3%F6%C8%CE%C3%C0%B9%FA%D7%A4%D6%D0%B9%FA%B4%F3%CA%B9) 3065118
+1. [7个省会城市房价低于一年前](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=7%B8%F6%CA%A1%BB%E1%B3%C7%CA%D0%B7%BF%BC%DB%B5%CD%D3%DA%D2%BB%C4%EA%C7%B0) 3038530
 1. [刺死霸凌者获刑8年男子刑满释放](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%CC%CB%C0%B0%D4%C1%E8%D5%DF%BB%F1%D0%CC8%C4%EA%C4%D0%D7%D3%D0%CC%C2%FA%CA%CD%B7%C5) 3016368
 1. [90后、95后成相亲主力军](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=90%BA%F3%A1%A295%BA%F3%B3%C9%CF%E0%C7%D7%D6%F7%C1%A6%BE%FC) 2979560
 1. [巴黎圣母院计划2024奥运前重开](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%CD%C0%E8%CA%A5%C4%B8%D4%BA%BC%C6%BB%AE2024%B0%C2%D4%CB%C7%B0%D6%D8%BF%AA) 2966049
