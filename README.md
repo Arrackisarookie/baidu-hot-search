@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-21 01:42:26
+最后更新时间 2021-04-21 02:34:25
 
 1. [特斯拉向车主致歉:已成立处理小组](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%CB%B9%C0%AD%CF%F2%B3%B5%D6%F7%D6%C2%C7%B8%3A%D2%D1%B3%C9%C1%A2%B4%A6%C0%ED%D0%A1%D7%E9) 4892910
 1. [乍得军方称总统在前线受重伤死亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%A7%B5%C3%BE%FC%B7%BD%B3%C6%D7%DC%CD%B3%D4%DA%C7%B0%CF%DF%CA%DC%D6%D8%C9%CB%CB%C0%CD%F6) 4721658
@@ -39,13 +39,14 @@
 1. [泰国正式发布疫苗护照范本](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%A9%B9%FA%D5%FD%CA%BD%B7%A2%B2%BC%D2%DF%C3%E7%BB%A4%D5%D5%B7%B6%B1%BE) 2399460
 1. [旅客向飞机扔硬币祈福致航班取消](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C2%C3%BF%CD%CF%F2%B7%C9%BB%FA%C8%D3%D3%B2%B1%D2%C6%ED%B8%A3%D6%C2%BA%BD%B0%E0%C8%A1%CF%FB) 2399324
 1. [玫瑰正式增选为济南市花](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%B5%B9%E5%D5%FD%CA%BD%D4%F6%D1%A1%CE%AA%BC%C3%C4%CF%CA%D0%BB%A8) 2315479
-1. [山河令制片人选角要求必须未婚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%BD%BA%D3%C1%EE%D6%C6%C6%AC%C8%CB%D1%A1%BD%C7%D2%AA%C7%F3%B1%D8%D0%EB%CE%B4%BB%E9) 2156232
-1. [美国前副总统沃尔特・蒙代尔逝世](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%C7%B0%B8%B1%D7%DC%CD%B3%CE%D6%B6%FB%CC%D8%A1%A4%C3%C9%B4%FA%B6%FB%CA%C5%CA%C0) 2080763
-1. [海南离岛免税10年销售额近1000亿元](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%A3%C4%CF%C0%EB%B5%BA%C3%E2%CB%B010%C4%EA%CF%FA%CA%DB%B6%EE%BD%FC1000%D2%DA%D4%AA) 2007937
-1. [辛巴直播拉着老婆连踢5脚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C1%B0%CD%D6%B1%B2%A5%C0%AD%D7%C5%C0%CF%C6%C5%C1%AC%CC%DF5%BD%C5) 1937659
-1. [恭喜！杜淳官宣当爸](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%A7%CF%B2%A3%A1%B6%C5%B4%BE%B9%D9%D0%FB%B5%B1%B0%D6) 1869841
-1. [美驻俄大使拒绝接受俄方建议离开](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%D7%A4%B6%ED%B4%F3%CA%B9%BE%DC%BE%F8%BD%D3%CA%DC%B6%ED%B7%BD%BD%A8%D2%E9%C0%EB%BF%AA) 1804396
-1. [男子三次抱摔3岁女童被刑拘](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%C8%FD%B4%CE%B1%A7%CB%A43%CB%EA%C5%AE%CD%AF%B1%BB%D0%CC%BE%D0) 1741243
+1. [山河令制片人选角要求必须未婚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%BD%BA%D3%C1%EE%D6%C6%C6%AC%C8%CB%D1%A1%BD%C7%D2%AA%C7%F3%B1%D8%D0%EB%CE%B4%BB%E9) 2231335
+1. [美国前副总统沃尔特・蒙代尔逝世](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%C7%B0%B8%B1%D7%DC%CD%B3%CE%D6%B6%FB%CC%D8%A1%A4%C3%C9%B4%FA%B6%FB%CA%C5%CA%C0) 2153238
+1. [海南离岛免税10年销售额近1000亿元](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%A3%C4%CF%C0%EB%B5%BA%C3%E2%CB%B010%C4%EA%CF%FA%CA%DB%B6%EE%BD%FC1000%D2%DA%D4%AA) 2077875
+1. [辛巴直播拉着老婆连踢5脚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C1%B0%CD%D6%B1%B2%A5%C0%AD%D7%C5%C0%CF%C6%C5%C1%AC%CC%DF5%BD%C5) 2005149
+1. [恭喜！杜淳官宣当爸](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%A7%CF%B2%A3%A1%B6%C5%B4%BE%B9%D9%D0%FB%B5%B1%B0%D6) 1934969
+1. [美驻俄大使拒绝接受俄方建议离开](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%D7%A4%B6%ED%B4%F3%CA%B9%BE%DC%BE%F8%BD%D3%CA%DC%B6%ED%B7%BD%BD%A8%D2%E9%C0%EB%BF%AA) 1867245
+1. [男子三次抱摔3岁女童被刑拘](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%C8%FD%B4%CE%B1%A7%CB%A43%CB%EA%C5%AE%CD%AF%B1%BB%D0%CC%BE%D0) 1801891
+1. [官方通报河北丰润数百亩耕地里种树](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%D9%B7%BD%CD%A8%B1%A8%BA%D3%B1%B1%B7%E1%C8%F3%CA%FD%B0%D9%C4%B6%B8%FB%B5%D8%C0%EF%D6%D6%CA%F7) 1738825
 <!-- Rank End -->
 
 历史归档 [./archives](./archives)
