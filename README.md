@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-21 00:41:49
+最后更新时间 2021-04-21 01:42:26
 
 1. [特斯拉向车主致歉:已成立处理小组](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%CB%B9%C0%AD%CF%F2%B3%B5%D6%F7%D6%C2%C7%B8%3A%D2%D1%B3%C9%C1%A2%B4%A6%C0%ED%D0%A1%D7%E9) 4892910
 1. [乍得军方称总统在前线受重伤死亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%A7%B5%C3%BE%FC%B7%BD%B3%C6%D7%DC%CD%B3%D4%DA%C7%B0%CF%DF%CA%DC%D6%D8%C9%CB%CB%C0%CD%F6) 4721658
@@ -37,8 +37,8 @@
 1. [9名大学生吸网购电子烟后入院](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=9%C3%FB%B4%F3%D1%A7%C9%FA%CE%FC%CD%F8%B9%BA%B5%E7%D7%D3%D1%CC%BA%F3%C8%EB%D4%BA) 2576670
 1. [疫苗接种证明不能代替核酸检测报告](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D2%DF%C3%E7%BD%D3%D6%D6%D6%A4%C3%F7%B2%BB%C4%DC%B4%FA%CC%E6%BA%CB%CB%E1%BC%EC%B2%E2%B1%A8%B8%E6) 2486487
 1. [泰国正式发布疫苗护照范本](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%A9%B9%FA%D5%FD%CA%BD%B7%A2%B2%BC%D2%DF%C3%E7%BB%A4%D5%D5%B7%B6%B1%BE) 2399460
+1. [旅客向飞机扔硬币祈福致航班取消](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C2%C3%BF%CD%CF%F2%B7%C9%BB%FA%C8%D3%D3%B2%B1%D2%C6%ED%B8%A3%D6%C2%BA%BD%B0%E0%C8%A1%CF%FB) 2399324
 1. [玫瑰正式增选为济南市花](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%B5%B9%E5%D5%FD%CA%BD%D4%F6%D1%A1%CE%AA%BC%C3%C4%CF%CA%D0%BB%A8) 2315479
-1. [旅客向飞机扔硬币祈福致航班取消](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C2%C3%BF%CD%CF%F2%B7%C9%BB%FA%C8%D3%D3%B2%B1%D2%C6%ED%B8%A3%D6%C2%BA%BD%B0%E0%C8%A1%CF%FB) 2234437
 1. [山河令制片人选角要求必须未婚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%BD%BA%D3%C1%EE%D6%C6%C6%AC%C8%CB%D1%A1%BD%C7%D2%AA%C7%F3%B1%D8%D0%EB%CE%B4%BB%E9) 2156232
 1. [美国前副总统沃尔特・蒙代尔逝世](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%C7%B0%B8%B1%D7%DC%CD%B3%CE%D6%B6%FB%CC%D8%A1%A4%C3%C9%B4%FA%B6%FB%CA%C5%CA%C0) 2080763
 1. [海南离岛免税10年销售额近1000亿元](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%A3%C4%CF%C0%EB%B5%BA%C3%E2%CB%B010%C4%EA%CF%FA%CA%DB%B6%EE%BD%FC1000%D2%DA%D4%AA) 2007937
