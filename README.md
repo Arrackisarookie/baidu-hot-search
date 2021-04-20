@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-21 06:28:03
+最后更新时间 2021-04-21 07:23:54
 
 1. [特斯拉向车主致歉:已成立处理小组](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%CB%B9%C0%AD%CF%F2%B3%B5%D6%F7%D6%C2%C7%B8%3A%D2%D1%B3%C9%C1%A2%B4%A6%C0%ED%D0%A1%D7%E9) 4897771
 1. [乍得军方称总统在前线受重伤死亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%A7%B5%C3%BE%FC%B7%BD%B3%C6%D7%DC%CD%B3%D4%DA%C7%B0%CF%DF%CA%DC%D6%D8%C9%CB%CB%C0%CD%F6) 4726349
