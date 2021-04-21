@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-22 04:24:00
+最后更新时间 2021-04-22 05:21:16
 
 1. [中方回应菅义伟向靖国神社供奉祭品](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B7%BD%BB%D8%D3%A6%DD%D1%D2%E5%CE%B0%CF%F2%BE%B8%B9%FA%C9%F1%C9%E7%B9%A9%B7%EE%BC%C0%C6%B7) 4917401
 1. [打了上针没下针？国家卫健委回应](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%F2%C1%CB%C9%CF%D5%EB%C3%BB%CF%C2%D5%EB%A3%BF%B9%FA%BC%D2%CE%C0%BD%A1%CE%AF%BB%D8%D3%A6) 4745292
@@ -45,7 +45,7 @@
 1. [袁隆平超级杂交水稻移栽冲世界纪录](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%AC%C2%A1%C6%BD%B3%AC%BC%B6%D4%D3%BD%BB%CB%AE%B5%BE%D2%C6%D4%D4%B3%E5%CA%C0%BD%E7%BC%CD%C2%BC) 1989848
 1. [女子用身体挡住失控轮椅](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%AE%D7%D3%D3%C3%C9%ED%CC%E5%B5%B2%D7%A1%CA%A7%BF%D8%C2%D6%D2%CE) 1917268
 1. [四川一火车上有猪羊成群穿行](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%C4%B4%A8%D2%BB%BB%F0%B3%B5%C9%CF%D3%D0%D6%ED%D1%F2%B3%C9%C8%BA%B4%A9%D0%D0) 1879200
-1. [中国累计接种新冠疫苗超2亿剂次](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%C0%DB%BC%C6%BD%D3%D6%D6%D0%C2%B9%DA%D2%DF%C3%E7%B3%AC2%D2%DA%BC%C1%B4%CE) 1826167
+1. [中国累计接种新冠疫苗超2亿剂次](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%C0%DB%BC%C6%BD%D3%D6%D6%D0%C2%B9%DA%D2%DF%C3%E7%B3%AC2%D2%DA%BC%C1%B4%CE) 1849010
 1. [许玮甯被曝离婚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%ED%E7%E2%E5%B8%B1%BB%C6%D8%C0%EB%BB%E9) 1749958
 1. [印尼一艘载有53人的潜艇失踪](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%C4%E1%D2%BB%CB%D2%D4%D8%D3%D053%C8%CB%B5%C4%C7%B1%CD%A7%CA%A7%D7%D9) 1725556
 <!-- Rank End -->
