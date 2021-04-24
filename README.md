@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-24 12:29:59
+最后更新时间 2021-04-24 13:26:07
 
 1. [日本删除放射性氚吉祥物形象](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%C9%BE%B3%FD%B7%C5%C9%E4%D0%D4%EB%B0%BC%AA%CF%E9%CE%EF%D0%CE%CF%F3) 4916541
 1. [王毅称民主不是可口可乐](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F5%D2%E3%B3%C6%C3%F1%D6%F7%B2%BB%CA%C7%BF%C9%BF%DA%BF%C9%C0%D6) 4882000
@@ -54,6 +54,7 @@
 1. [字节跳动:公司暂不具备上市条件](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D7%D6%BD%DA%CC%F8%B6%AF%3A%B9%AB%CB%BE%D4%DD%B2%BB%BE%DF%B1%B8%C9%CF%CA%D0%CC%F5%BC%FE) 2683020
 1. [哈��出行正式递交招股书赴美上市](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FE%86%AA%B3%F6%D0%D0%D5%FD%CA%BD%B5%DD%BD%BB%D5%D0%B9%C9%CA%E9%B8%B0%C3%C0%C9%CF%CA%D0) 2664171
 1. [国产芯片厂集体宣布涨价](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FA%B2%FA%D0%BE%C6%AC%B3%A7%BC%AF%CC%E5%D0%FB%B2%BC%D5%C7%BC%DB) 2589115
+1. [宿舍水泥地裂缝长4米高竹笋](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%DE%C9%E1%CB%AE%C4%E0%B5%D8%C1%D1%B7%EC%B3%A44%C3%D7%B8%DF%D6%F1%CB%F1) 2557927
 1. [女子辱骂民警称有8套房](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%AE%D7%D3%C8%E8%C2%EE%C3%F1%BE%AF%B3%C6%D3%D08%CC%D7%B7%BF) 2498496
 1. [国家一级运动员酒驾狂奔没跑过交警](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FA%BC%D2%D2%BB%BC%B6%D4%CB%B6%AF%D4%B1%BE%C6%BC%DD%BF%F1%B1%BC%C3%BB%C5%DC%B9%FD%BD%BB%BE%AF) 2480943
 1. [创造营2021最新排名:力丸第一](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%B4%D4%EC%D3%AA2021%D7%EE%D0%C2%C5%C5%C3%FB%3A%C1%A6%CD%E8%B5%DA%D2%BB) 2411048
@@ -63,11 +64,11 @@
 1. [王子文吴永恩牵手逛街](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F5%D7%D3%CE%C4%CE%E2%D3%C0%B6%F7%C7%A3%CA%D6%B9%E4%BD%D6) 2245228
 1. [火星车祝融号虚拟形象亮相](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%F0%D0%C7%B3%B5%D7%A3%C8%DA%BA%C5%D0%E9%C4%E2%D0%CE%CF%F3%C1%C1%CF%E0) 2229455
 1. [王力宏周杰伦时隔二十年再合作](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F5%C1%A6%BA%EA%D6%DC%BD%DC%C2%D7%CA%B1%B8%F4%B6%FE%CA%AE%C4%EA%D4%D9%BA%CF%D7%F7) 2166645
+1. [国信证券回应大妈5万炒股变500万](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FA%D0%C5%D6%A4%C8%AF%BB%D8%D3%A6%B4%F3%C2%E85%CD%F2%B3%B4%B9%C9%B1%E4500%CD%F2) 2140547
 1. [申花战胜国安](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%EA%BB%A8%D5%BD%CA%A4%B9%FA%B0%B2) 2090813
 1. [拜登或翻倍提高富人资本利得税税率](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%DD%B5%C7%BB%F2%B7%AD%B1%B6%CC%E1%B8%DF%B8%BB%C8%CB%D7%CA%B1%BE%C0%FB%B5%C3%CB%B0%CB%B0%C2%CA) 2085540
 1. [世界首个空中全透明泳池](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%C0%BD%E7%CA%D7%B8%F6%BF%D5%D6%D0%C8%AB%CD%B8%C3%F7%D3%BE%B3%D8) 2017634
 1. [广州交警辟谣禁止特斯拉上高速](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%D6%DD%BD%BB%BE%AF%B1%D9%D2%A5%BD%FB%D6%B9%CC%D8%CB%B9%C0%AD%C9%CF%B8%DF%CB%D9) 2013810
-1. [国信证券回应大妈5万炒股变500万](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FA%D0%C5%D6%A4%C8%AF%BB%D8%D3%A6%B4%F3%C2%E85%CD%F2%B3%B4%B9%C9%B1%E4500%CD%F2) 1933338
 1. [环保组织打碎汇丰总部19扇窗户](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%B7%B1%A3%D7%E9%D6%AF%B4%F2%CB%E9%BB%E3%B7%E1%D7%DC%B2%BF19%C9%C8%B4%B0%BB%A7) 1813111
 1. [李嘉欣晒与黎姿聚会合照](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%EE%BC%CE%D0%C0%C9%B9%D3%EB%C0%E8%D7%CB%BE%DB%BB%E1%BA%CF%D5%D5) 1749652
 <!-- Rank End -->
