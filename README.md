@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-25 13:27:05
+最后更新时间 2021-04-25 14:29:01
 
 1. [特斯拉维权女车主已被释放](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%CB%B9%C0%AD%CE%AC%C8%A8%C5%AE%B3%B5%D6%F7%D2%D1%B1%BB%CA%CD%B7%C5) 4890867
 1. [印度单日新增确诊超34万例破纪录](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%B6%C8%B5%A5%C8%D5%D0%C2%D4%F6%C8%B7%D5%EF%B3%AC34%CD%F2%C0%FD%C6%C6%BC%CD%C2%BC) 4884904
@@ -63,13 +63,14 @@
 1. [萌娃耳朵被蚊子叮成大耳朵图图](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C8%CD%DE%B6%FA%B6%E4%B1%BB%CE%C3%D7%D3%B6%A3%B3%C9%B4%F3%B6%FA%B6%E4%CD%BC%CD%BC) 2309836
 1. [共享充电宝进入3元时代](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%B2%CF%ED%B3%E4%B5%E7%B1%A6%BD%F8%C8%EB3%D4%AA%CA%B1%B4%FA) 2306974
 1. [德联邦议院通过更严5G安全立法](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B5%C2%C1%AA%B0%EE%D2%E9%D4%BA%CD%A8%B9%FD%B8%FC%D1%CF5G%B0%B2%C8%AB%C1%A2%B7%A8) 2242728
+1. [2020年中小学肥胖率超10%](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=2020%C4%EA%D6%D0%D0%A1%D1%A7%B7%CA%C5%D6%C2%CA%B3%AC10%25) 2230959
+1. [00后学生虚构多种理由骗老师百万](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=00%BA%F3%D1%A7%C9%FA%D0%E9%B9%B9%B6%E0%D6%D6%C0%ED%D3%C9%C6%AD%C0%CF%CA%A6%B0%D9%CD%F2) 2152875
 1. [宿舍水泥地裂缝长4米高竹笋](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%DE%C9%E1%CB%AE%C4%E0%B5%D8%C1%D1%B7%EC%B3%A44%C3%D7%B8%DF%D6%F1%CB%F1) 2079895
 1. [美国队长将拍第四部](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%B6%D3%B3%A4%BD%AB%C5%C4%B5%DA%CB%C4%B2%BF) 2067659
-1. [2020年中小学肥胖率超10%](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=2020%C4%EA%D6%D0%D0%A1%D1%A7%B7%CA%C5%D6%C2%CA%B3%AC10%25) 2007098
 1. [约3成大学生体质健康不及格](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%BC3%B3%C9%B4%F3%D1%A7%C9%FA%CC%E5%D6%CA%BD%A1%BF%B5%B2%BB%BC%B0%B8%F1) 2003043
-1. [00后学生虚构多种理由骗老师百万](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=00%BA%F3%D1%A7%C9%FA%D0%E9%B9%B9%B6%E0%D6%D6%C0%ED%D3%C9%C6%AD%C0%CF%CA%A6%B0%D9%CD%F2) 1936850
 1. [大学生炒鞋诈骗百万获刑10年半](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%F3%D1%A7%C9%FA%B3%B4%D0%AC%D5%A9%C6%AD%B0%D9%CD%F2%BB%F1%D0%CC10%C4%EA%B0%EB) 1932937
 1. [基辛格谈“乒乓外交”启示](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%F9%D0%C1%B8%F1%CC%B8%A1%B0%C6%B9%C5%D2%CD%E2%BD%BB%A1%B1%C6%F4%CA%BE) 1876779
+1. [印度救护车转弯甩落新冠死者遗体](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%B6%C8%BE%C8%BB%A4%B3%B5%D7%AA%CD%E4%CB%A6%C2%E4%D0%C2%B9%DA%CB%C0%D5%DF%D2%C5%CC%E5) 1801588
 1. [世卫称中高收入国家垄断了疫苗接种](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%C0%CE%C0%B3%C6%D6%D0%B8%DF%CA%D5%C8%EB%B9%FA%BC%D2%C2%A2%B6%CF%C1%CB%D2%DF%C3%E7%BD%D3%D6%D6) 1740515
 1. [曝孙杨时隔467天正式复出](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%D8%CB%EF%D1%EE%CA%B1%B8%F4467%CC%EC%D5%FD%CA%BD%B8%B4%B3%F6) 1736999
 <!-- Rank End -->
