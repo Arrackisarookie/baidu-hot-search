@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-25 16:26:53
+最后更新时间 2021-04-25 17:24:45
 
 1. [特斯拉维权女车主已被释放](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%CB%B9%C0%AD%CE%AC%C8%A8%C5%AE%B3%B5%D6%F7%D2%D1%B1%BB%CA%CD%B7%C5) 4890867
 1. [印度单日新增确诊超34万例破纪录](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%B6%C8%B5%A5%C8%D5%D0%C2%D4%F6%C8%B7%D5%EF%B3%AC34%CD%F2%C0%FD%C6%C6%BC%CD%C2%BC) 4884904
@@ -26,12 +26,14 @@
 1. [进村东北虎已送至饲养繁育中心](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%F8%B4%E5%B6%AB%B1%B1%BB%A2%D2%D1%CB%CD%D6%C1%CB%C7%D1%F8%B7%B1%D3%FD%D6%D0%D0%C4) 4389732
 1. [印度地方政府拦截运氧车](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%B6%C8%B5%D8%B7%BD%D5%FE%B8%AE%C0%B9%BD%D8%D4%CB%D1%F5%B3%B5) 4384240
 1. [姚策看新闻才知道自己非亲生](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D2%A6%B2%DF%BF%B4%D0%C2%CE%C5%B2%C5%D6%AA%B5%C0%D7%D4%BC%BA%B7%C7%C7%D7%C9%FA) 4377192
+1. [“虎口逃生”女子：我当时傻眼了](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%A1%B0%BB%A2%BF%DA%CC%D3%C9%FA%A1%B1%C5%AE%D7%D3%A3%BA%CE%D2%B5%B1%CA%B1%C9%B5%D1%DB%C1%CB) 4328972
 1. [银行回应押钞员中枪身亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D2%F8%D0%D0%BB%D8%D3%A6%D1%BA%B3%AE%D4%B1%D6%D0%C7%B9%C9%ED%CD%F6) 4236091
 1. [五一租车订单爆满](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E5%D2%BB%D7%E2%B3%B5%B6%A9%B5%A5%B1%AC%C2%FA) 4223991
 1. [张伟丽无缘卫冕UFC金腰带](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C5%CE%B0%C0%F6%CE%DE%D4%B5%CE%C0%C3%E1UFC%BD%F0%D1%FC%B4%F8) 4186000
 1. [清华大学110周年校庆](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C7%E5%BB%AA%B4%F3%D1%A7110%D6%DC%C4%EA%D0%A3%C7%EC) 4092818
 1. [爸爸回应光腿光脚抱女儿看急诊](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%D6%B0%D6%BB%D8%D3%A6%B9%E2%CD%C8%B9%E2%BD%C5%B1%A7%C5%AE%B6%F9%BF%B4%BC%B1%D5%EF) 4087828
 1. [B站面试官回应涉招聘争议](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=B%D5%BE%C3%E6%CA%D4%B9%D9%BB%D8%D3%A6%C9%E6%D5%D0%C6%B8%D5%F9%D2%E9) 4076151
+1. [网购首饰遇假货 主播称假一赔命](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F8%B9%BA%CA%D7%CA%CE%D3%F6%BC%D9%BB%F5%20%D6%F7%B2%A5%B3%C6%BC%D9%D2%BB%C5%E2%C3%FC) 4031247
 1. [印尼军方称失联潜艇已沉没](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%C4%E1%BE%FC%B7%BD%B3%C6%CA%A7%C1%AA%C7%B1%CD%A7%D2%D1%B3%C1%C3%BB) 3944754
 1. [孩子网购小鱼竟收到泰国鳄](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%A2%D7%D3%CD%F8%B9%BA%D0%A1%D3%E3%BE%B9%CA%D5%B5%BD%CC%A9%B9%FA%F6%F9) 3939819
 1. [沈梦辰因过度焦虑斑秃](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%F2%C3%CE%B3%BD%D2%F2%B9%FD%B6%C8%BD%B9%C2%C7%B0%DF%CD%BA) 3933486
@@ -50,6 +52,7 @@
 1. [日本计划重启3座高龄核电机组](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%BC%C6%BB%AE%D6%D8%C6%F43%D7%F9%B8%DF%C1%E4%BA%CB%B5%E7%BB%FA%D7%E9) 3424987
 1. [全国现有高风险地区2个](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%B9%FA%CF%D6%D3%D0%B8%DF%B7%E7%CF%D5%B5%D8%C7%F82%B8%F6) 3420812
 1. [刘诗诗罕见探班杨幂](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C1%F5%CA%AB%CA%AB%BA%B1%BC%FB%CC%BD%B0%E0%D1%EE%C3%DD) 3377863
+1. [上海楼盘认购前需公示3天](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%CF%BA%A3%C2%A5%C5%CC%C8%CF%B9%BA%C7%B0%D0%E8%B9%AB%CA%BE3%CC%EC) 3373463
 1. [宁静听周深唱歌把耳麦蹦到鞋上](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%FE%BE%B2%CC%FD%D6%DC%C9%EE%B3%AA%B8%E8%B0%D1%B6%FA%C2%F3%B1%C4%B5%BD%D0%AC%C9%CF) 3305113
 1. [韩美娟看王嘉尔的表情是我了](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%AB%C3%C0%BE%EA%BF%B4%CD%F5%BC%CE%B6%FB%B5%C4%B1%ED%C7%E9%CA%C7%CE%D2%C1%CB) 3301083
 1. [福建驴友穿越未开发海岸致1死1伤](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B8%A3%BD%A8%C2%BF%D3%D1%B4%A9%D4%BD%CE%B4%BF%AA%B7%A2%BA%A3%B0%B6%D6%C21%CB%C01%C9%CB) 3291654
@@ -84,6 +87,7 @@
 1. [宿舍水泥地裂缝长4米高竹笋](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%DE%C9%E1%CB%AE%C4%E0%B5%D8%C1%D1%B7%EC%B3%A44%C3%D7%B8%DF%D6%F1%CB%F1) 2079895
 1. [美国队长将拍第四部](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%B6%D3%B3%A4%BD%AB%C5%C4%B5%DA%CB%C4%B2%BF) 2067659
 1. [约3成大学生体质健康不及格](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%BC3%B3%C9%B4%F3%D1%A7%C9%FA%CC%E5%D6%CA%BD%A1%BF%B5%B2%BB%BC%B0%B8%F1) 2003043
+1. [故宫五一假期5天门票全售罄](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%CA%B9%AC%CE%E5%D2%BB%BC%D9%C6%DA5%CC%EC%C3%C5%C6%B1%C8%AB%CA%DB%F3%C0) 1976904
 1. [大学生炒鞋诈骗百万获刑10年半](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%F3%D1%A7%C9%FA%B3%B4%D0%AC%D5%A9%C6%AD%B0%D9%CD%F2%BB%F1%D0%CC10%C4%EA%B0%EB) 1932937
 1. [基辛格谈“乒乓外交”启示](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%F9%D0%C1%B8%F1%CC%B8%A1%B0%C6%B9%C5%D2%CD%E2%BD%BB%A1%B1%C6%F4%CA%BE) 1876779
 1. [印度救护车转弯甩落新冠死者遗体](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%B6%C8%BE%C8%BB%A4%B3%B5%D7%AA%CD%E4%CB%A6%C2%E4%D0%C2%B9%DA%CB%C0%D5%DF%D2%C5%CC%E5) 1801588
