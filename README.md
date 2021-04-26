@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-04-26 10:46:22
+最后更新时间 2021-04-26 11:31:39
 
 1. [特斯拉维权女车主获释后首发声](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%CB%B9%C0%AD%CE%AC%C8%A8%C5%AE%B3%B5%D6%F7%BB%F1%CA%CD%BA%F3%CA%D7%B7%A2%C9%F9) 4915193
 1. [特斯拉维权女车主父亲首次发声](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%CB%B9%C0%AD%CE%AC%C8%A8%C5%AE%B3%B5%D6%F7%B8%B8%C7%D7%CA%D7%B4%CE%B7%A2%C9%F9) 4901243
@@ -53,6 +53,7 @@
 1. [张文宏谈印度疫情失控](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C5%CE%C4%BA%EA%CC%B8%D3%A1%B6%C8%D2%DF%C7%E9%CA%A7%BF%D8) 2588405
 1. [上海金山工厂大火细节](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%CF%BA%A3%BD%F0%C9%BD%B9%A4%B3%A7%B4%F3%BB%F0%CF%B8%BD%DA) 2581059
 1. [日本计划重启3座高龄核电机组](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%D5%B1%BE%BC%C6%BB%AE%D6%D8%C6%F43%D7%F9%B8%DF%C1%E4%BA%CB%B5%E7%BB%FA%D7%E9) 2542167
+1. [男孩被疯牛袭击躲车底求饶](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%BA%A2%B1%BB%B7%E8%C5%A3%CF%AE%BB%F7%B6%E3%B3%B5%B5%D7%C7%F3%C8%C4) 2519440
 1. [教育部：保证中小学体育活动时间](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%CC%D3%FD%B2%BF%A3%BA%B1%A3%D6%A4%D6%D0%D0%A1%D1%A7%CC%E5%D3%FD%BB%EE%B6%AF%CA%B1%BC%E4) 2497810
 1. [曼城联赛杯四连冠](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C2%FC%B3%C7%C1%AA%C8%FC%B1%AD%CB%C4%C1%AC%B9%DA) 2410387
 1. [俄罗斯五一连休十天不调休](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%ED%C2%DE%CB%B9%CE%E5%D2%BB%C1%AC%D0%DD%CA%AE%CC%EC%B2%BB%B5%F7%D0%DD) 2384060
