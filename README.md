@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-05-01 21:28:37
+最后更新时间 2021-05-01 22:21:02
 
 1. [全国五一天气地图](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%B9%FA%CE%E5%D2%BB%CC%EC%C6%F8%B5%D8%CD%BC) 4875321
 1. [直播:央视五一晚会](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%B1%B2%A5%3A%D1%EB%CA%D3%CE%E5%D2%BB%CD%ED%BB%E1) 4854048
@@ -25,6 +25,7 @@
 1. [江苏南通遭极端天气 已致多人死亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%AD%CB%D5%C4%CF%CD%A8%D4%E2%BC%AB%B6%CB%CC%EC%C6%F8%20%D2%D1%D6%C2%B6%E0%C8%CB%CB%C0%CD%F6) 4581690
 1. [国防部:日方的手不要伸得太长](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FA%B7%C0%B2%BF%3A%C8%D5%B7%BD%B5%C4%CA%D6%B2%BB%D2%AA%C9%EC%B5%C3%CC%AB%B3%A4) 4540021
 1. [五一音乐节狂欢](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E5%D2%BB%D2%F4%C0%D6%BD%DA%BF%F1%BB%B6) 4494140
+1. [西湖断桥五一假期变“人桥”](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%F7%BA%FE%B6%CF%C7%C5%CE%E5%D2%BB%BC%D9%C6%DA%B1%E4%A1%B0%C8%CB%C7%C5%A1%B1) 4479760
 1. [五一首日全国高速一侧拥堵一侧空](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E5%D2%BB%CA%D7%C8%D5%C8%AB%B9%FA%B8%DF%CB%D9%D2%BB%B2%E0%D3%B5%B6%C2%D2%BB%B2%E0%BF%D5) 4421331
 1. [如何避开人从众?假期首日提前探路](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%E7%BA%CE%B1%DC%BF%AA%C8%CB%B4%D3%D6%DA%3F%BC%D9%C6%DA%CA%D7%C8%D5%CC%E1%C7%B0%CC%BD%C2%B7) 4409072
 1. [多地开启堵车模式:高速变停车场](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%E0%B5%D8%BF%AA%C6%F4%B6%C2%B3%B5%C4%A3%CA%BD%3A%B8%DF%CB%D9%B1%E4%CD%A3%B3%B5%B3%A1) 4381120
@@ -34,7 +35,7 @@
 1. [中国女排连赢三局战胜日本女排](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%C5%AE%C5%C5%C1%AC%D3%AE%C8%FD%BE%D6%D5%BD%CA%A4%C8%D5%B1%BE%C5%AE%C5%C5) 4209333
 1. [31省份新增16例确诊均为境外输入](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%B7%DD%D0%C2%D4%F616%C0%FD%C8%B7%D5%EF%BE%F9%CE%AA%BE%B3%CD%E2%CA%E4%C8%EB) 4105838
 1. [国家统计局:农民工月均收入4072元](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FA%BC%D2%CD%B3%BC%C6%BE%D6%3A%C5%A9%C3%F1%B9%A4%D4%C2%BE%F9%CA%D5%C8%EB4072%D4%AA) 4079808
-1. [西湖断桥五一假期变“人桥”](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%F7%BA%FE%B6%CF%C7%C5%CE%E5%D2%BB%BC%D9%C6%DA%B1%E4%A1%B0%C8%CB%C7%C5%A1%B1) 4062006
+1. [官方通报京广高铁部分列车晚点](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%D9%B7%BD%CD%A8%B1%A8%BE%A9%B9%E3%B8%DF%CC%FA%B2%BF%B7%D6%C1%D0%B3%B5%CD%ED%B5%E3) 4025656
 1. [官方回应老人18元一日游被带往墓地](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%D9%B7%BD%BB%D8%D3%A6%C0%CF%C8%CB18%D4%AA%D2%BB%C8%D5%D3%CE%B1%BB%B4%F8%CD%F9%C4%B9%B5%D8) 3973150
 1. [王毅同印度外长通电话](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F5%D2%E3%CD%AC%D3%A1%B6%C8%CD%E2%B3%A4%CD%A8%B5%E7%BB%B0) 3962134
 1. [台湾发生新冠肺炎群聚感染](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%A8%CD%E5%B7%A2%C9%FA%D0%C2%B9%DA%B7%CE%D1%D7%C8%BA%BE%DB%B8%D0%C8%BE) 3937015
@@ -81,6 +82,7 @@
 1. [南京一救护车占道搬家 警方通报](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%CF%BE%A9%D2%BB%BE%C8%BB%A4%B3%B5%D5%BC%B5%C0%B0%E1%BC%D2%20%BE%AF%B7%BD%CD%A8%B1%A8) 2493355
 1. [殴打强奸14岁少女7人被刑拘](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%B9%B4%F2%C7%BF%BC%E914%CB%EA%C9%D9%C5%AE7%C8%CB%B1%BB%D0%CC%BE%D0) 2477548
 1. [刘老根4开播](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C1%F5%C0%CF%B8%F94%BF%AA%B2%A5) 2446652
+1. [幼师领孩子进厕所暴打体罚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%D7%CA%A6%C1%EC%BA%A2%D7%D3%BD%F8%B2%DE%CB%F9%B1%A9%B4%F2%CC%E5%B7%A3) 2444663
 1. [女子取快递被造谣出轨 造谣者获刑](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%AE%D7%D3%C8%A1%BF%EC%B5%DD%B1%BB%D4%EC%D2%A5%B3%F6%B9%EC%20%D4%EC%D2%A5%D5%DF%BB%F1%D0%CC) 2390834
 1. [西藏发现8000年前磨制石针](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%F7%B2%D8%B7%A2%CF%D68000%C4%EA%C7%B0%C4%A5%D6%C6%CA%AF%D5%EB) 2358918
 1. [上海一居民连开5年震楼器](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%CF%BA%A3%D2%BB%BE%D3%C3%F1%C1%AC%BF%AA5%C4%EA%D5%F0%C2%A5%C6%F7) 2336802
@@ -99,6 +101,7 @@
 1. [5人因抢劫Lady Gaga宠物狗被捕](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=5%C8%CB%D2%F2%C7%C0%BD%D9Lady%20Gaga%B3%E8%CE%EF%B9%B7%B1%BB%B2%B6) 1995293
 1. [印度单日新增确诊超40万例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%B6%C8%B5%A5%C8%D5%D0%C2%D4%F6%C8%B7%D5%EF%B3%AC40%CD%F2%C0%FD) 1968184
 1. [吴尊友说不必对印度变异毒株恐慌](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%E2%D7%F0%D3%D1%CB%B5%B2%BB%B1%D8%B6%D4%D3%A1%B6%C8%B1%E4%D2%EC%B6%BE%D6%EA%BF%D6%BB%C5) 1925458
+1. [跳水世界杯中国队夺首金](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%F8%CB%AE%CA%C0%BD%E7%B1%AD%D6%D0%B9%FA%B6%D3%B6%E1%CA%D7%BD%F0) 1905067
 1. [特朗普确认将再次参选总统](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%C8%B7%C8%CF%BD%AB%D4%D9%B4%CE%B2%CE%D1%A1%D7%DC%CD%B3) 1887060
 1. [赵丽颖录制拜托了冰箱](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%D4%C0%F6%D3%B1%C2%BC%D6%C6%B0%DD%CD%D0%C1%CB%B1%F9%CF%E4) 1880219
 1. [中亚两国激烈交火 居民蹲墙后围观](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%D1%C7%C1%BD%B9%FA%BC%A4%C1%D2%BD%BB%BB%F0%20%BE%D3%C3%F1%B6%D7%C7%BD%BA%F3%CE%A7%B9%DB) 1858067
