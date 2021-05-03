@@ -14,9 +14,10 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-05-04 06:25:57
+最后更新时间 2021-05-04 07:21:37
 
 1. [杜特尔特接种中国新冠疫苗](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%C5%CC%D8%B6%FB%CC%D8%BD%D3%D6%D6%D6%D0%B9%FA%D0%C2%B9%DA%D2%DF%C3%E7) 4898287
+1. [比尔・盖茨与妻子宣布离婚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%C8%B6%FB%A1%A4%B8%C7%B4%C4%D3%EB%C6%DE%D7%D3%D0%FB%B2%BC%C0%EB%BB%E9) 4895831
 1. [山东接种疫苗后可升级为金色健康码](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%BD%B6%AB%BD%D3%D6%D6%D2%DF%C3%E7%BA%F3%BF%C9%C9%FD%BC%B6%CE%AA%BD%F0%C9%AB%BD%A1%BF%B5%C2%EB) 4726846
 1. [美国近三分之一人完成疫苗两针接种](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%BD%FC%C8%FD%B7%D6%D6%AE%D2%BB%C8%CB%CD%EA%B3%C9%D2%DF%C3%E7%C1%BD%D5%EB%BD%D3%D6%D6) 4561407
 1. [河南发现一例新冠复阳无症状感染者](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%C4%CF%B7%A2%CF%D6%D2%BB%C0%FD%D0%C2%B9%DA%B8%B4%D1%F4%CE%DE%D6%A2%D7%B4%B8%D0%C8%BE%D5%DF) 4401758
