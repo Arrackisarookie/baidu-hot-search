@@ -14,11 +14,12 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-05-04 13:23:02
+最后更新时间 2021-05-04 14:26:15
 
 1. [杜特尔特接种中国新冠疫苗](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%C5%CC%D8%B6%FB%CC%D8%BD%D3%D6%D6%D6%D0%B9%FA%D0%C2%B9%DA%D2%DF%C3%E7) 4898287
 1. [比尔・盖茨与妻子宣布离婚](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%C8%B6%FB%A1%A4%B8%C7%B4%C4%D3%EB%C6%DE%D7%D3%D0%FB%B2%BC%C0%EB%BB%E9) 4895831
 1. [31省区市新增确诊17例均为境外输入](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%C7%F8%CA%D0%D0%C2%D4%F6%C8%B7%D5%EF17%C0%FD%BE%F9%CE%AA%BE%B3%CD%E2%CA%E4%C8%EB) 4882076
+1. [印度累计确诊病例已超2000万例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%B6%C8%C0%DB%BC%C6%C8%B7%D5%EF%B2%A1%C0%FD%D2%D1%B3%AC2000%CD%F2%C0%FD) 4750963
 1. [山东接种疫苗后可升级为金色健康码](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%BD%B6%AB%BD%D3%D6%D6%D2%DF%C3%E7%BA%F3%BF%C9%C9%FD%BC%B6%CE%AA%BD%F0%C9%AB%BD%A1%BF%B5%C2%EB) 4726846
 1. [95后00后成红色旅游出游主力](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=95%BA%F300%BA%F3%B3%C9%BA%EC%C9%AB%C2%C3%D3%CE%B3%F6%D3%CE%D6%F7%C1%A6) 4570893
 1. [美国近三分之一人完成疫苗两针接种](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%BD%FC%C8%FD%B7%D6%D6%AE%D2%BB%C8%CB%CD%EA%B3%C9%D2%DF%C3%E7%C1%BD%D5%EB%BD%D3%D6%D6) 4561407
@@ -28,6 +29,7 @@
 1. [印防长考虑部署军队应对新冠危机](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%B7%C0%B3%A4%BF%BC%C2%C7%B2%BF%CA%F0%BE%FC%B6%D3%D3%A6%B6%D4%D0%C2%B9%DA%CE%A3%BB%FA) 4099027
 1. [男子爬玻璃栈桥防护栏被逐出景区](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%D0%D7%D3%C5%C0%B2%A3%C1%A7%D5%BB%C7%C5%B7%C0%BB%A4%C0%B8%B1%BB%D6%F0%B3%F6%BE%B0%C7%F8) 4085462
 1. [这次是真正的国潮](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%E2%B4%CE%CA%C7%D5%E6%D5%FD%B5%C4%B9%FA%B3%B1) 4069714
+1. [浙江一高速6车追尾 已致6死3伤](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%E3%BD%AD%D2%BB%B8%DF%CB%D96%B3%B5%D7%B7%CE%B2%20%D2%D1%D6%C26%CB%C03%C9%CB) 3836591
 1. [黄秋生在台隔离期间被诈骗](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%C6%C7%EF%C9%FA%D4%DA%CC%A8%B8%F4%C0%EB%C6%DA%BC%E4%B1%BB%D5%A9%C6%AD) 3817116
 1. [蔡元培就职北大校长演说影像资料](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B2%CC%D4%AA%C5%E0%BE%CD%D6%B0%B1%B1%B4%F3%D0%A3%B3%A4%D1%DD%CB%B5%D3%B0%CF%F1%D7%CA%C1%CF) 3804484
 1. [印度供应全球六成新冠疫苗](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%B6%C8%B9%A9%D3%A6%C8%AB%C7%F2%C1%F9%B3%C9%D0%C2%B9%DA%D2%DF%C3%E7) 3789820
@@ -61,15 +63,16 @@
 1. [巴菲特透露接班人选](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%CD%B7%C6%CC%D8%CD%B8%C2%B6%BD%D3%B0%E0%C8%CB%D1%A1) 2220896
 1. [印度女子为确诊母亲做人工呼吸](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%B6%C8%C5%AE%D7%D3%CE%AA%C8%B7%D5%EF%C4%B8%C7%D7%D7%F6%C8%CB%B9%A4%BA%F4%CE%FC) 2163090
 1. [全国多地景区五一后继续免门票](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%B9%FA%B6%E0%B5%D8%BE%B0%C7%F8%CE%E5%D2%BB%BA%F3%BC%CC%D0%F8%C3%E2%C3%C5%C6%B1) 2131270
+1. [萧敬腾在广州参加活动下大雨](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CF%F4%BE%B4%CC%DA%D4%DA%B9%E3%D6%DD%B2%CE%BC%D3%BB%EE%B6%AF%CF%C2%B4%F3%D3%EA) 2093677
 1. [重庆大雨致车辆被淹仅露车顶](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D8%C7%EC%B4%F3%D3%EA%D6%C2%B3%B5%C1%BE%B1%BB%D1%CD%BD%F6%C2%B6%B3%B5%B6%A5) 2087382
 1. [张国立加夜班被指矫情](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C5%B9%FA%C1%A2%BC%D3%D2%B9%B0%E0%B1%BB%D6%B8%BD%C3%C7%E9) 2014323
+1. [少林寺竹林被上百游客刻字](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%D9%C1%D6%CB%C2%D6%F1%C1%D6%B1%BB%C9%CF%B0%D9%D3%CE%BF%CD%BF%CC%D7%D6) 1949685
 1. [广州献血杰出贡献者免费坐公交](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%D6%DD%CF%D7%D1%AA%BD%DC%B3%F6%B9%B1%CF%D7%D5%DF%C3%E2%B7%D1%D7%F8%B9%AB%BD%BB) 1943822
 1. [深圳教育局回应组织中考适应性评估](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%EE%DB%DA%BD%CC%D3%FD%BE%D6%BB%D8%D3%A6%D7%E9%D6%AF%D6%D0%BF%BC%CA%CA%D3%A6%D0%D4%C6%C0%B9%C0) 1925917
 1. [云台山景区就游客滞留排队致歉](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%C6%CC%A8%C9%BD%BE%B0%C7%F8%BE%CD%D3%CE%BF%CD%D6%CD%C1%F4%C5%C5%B6%D3%D6%C2%C7%B8) 1876776
 1. [东莞通报4名渔民偷渡入境](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%AB%DD%B8%CD%A8%B1%A84%C3%FB%D3%E6%C3%F1%CD%B5%B6%C9%C8%EB%BE%B3) 1875788
-1. [萧敬腾在广州参加活动下大雨](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CF%F4%BE%B4%CC%DA%D4%DA%B9%E3%D6%DD%B2%CE%BC%D3%BB%EE%B6%AF%CF%C2%B4%F3%D3%EA) 1858509
 1. [女儿结婚父亲埋头吃饭掩饰流泪](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%AE%B6%F9%BD%E1%BB%E9%B8%B8%C7%D7%C2%F1%CD%B7%B3%D4%B7%B9%D1%DA%CA%CE%C1%F7%C0%E1) 1810136
-1. [少林寺竹林被上百游客刻字](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%D9%C1%D6%CB%C2%D6%F1%C1%D6%B1%BB%C9%CF%B0%D9%D3%CE%BF%CD%BF%CC%D7%D6) 1730690
+1. [家属回应的哥猝死仍被贴罚单](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%D2%CA%F4%BB%D8%D3%A6%B5%C4%B8%E7%E2%A7%CB%C0%C8%D4%B1%BB%CC%F9%B7%A3%B5%A5) 1752049
 1. [韩国将从印度撤侨近400人](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%AB%B9%FA%BD%AB%B4%D3%D3%A1%B6%C8%B3%B7%C7%C8%BD%FC400%C8%CB) 1685644
 <!-- Rank End -->
 
