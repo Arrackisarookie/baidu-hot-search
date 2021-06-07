@@ -14,11 +14,12 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-06-07 22:46:23
+最后更新时间 2021-06-07 23:48:42
 
 1. [黑龙江煤矿事故失联8人全部幸存](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%DA%C1%FA%BD%AD%C3%BA%BF%F3%CA%C2%B9%CA%CA%A7%C1%AA8%C8%CB%C8%AB%B2%BF%D0%D2%B4%E6) 4989618
 1. [直播:多地直击高考首日](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%B1%B2%A5%3A%B6%E0%B5%D8%D6%B1%BB%F7%B8%DF%BF%BC%CA%D7%C8%D5) 4986805
 1. [广东新增本土确诊5例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%B6%AB%D0%C2%D4%F6%B1%BE%CD%C1%C8%B7%D5%EF5%C0%FD) 4895758
+1. [新冠在艾滋患者体内突变30次](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%B9%DA%D4%DA%B0%AC%D7%CC%BB%BC%D5%DF%CC%E5%C4%DA%CD%BB%B1%E430%B4%CE) 4825515
 1. [重庆一中学高三学生坐船赶考](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D8%C7%EC%D2%BB%D6%D0%D1%A7%B8%DF%C8%FD%D1%A7%C9%FA%D7%F8%B4%AC%B8%CF%BF%BC) 4799290
 1. [离开佛山出省需持48小时内阴性证明](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%EB%BF%AA%B7%F0%C9%BD%B3%F6%CA%A1%D0%E8%B3%D648%D0%A1%CA%B1%C4%DA%D2%F5%D0%D4%D6%A4%C3%F7) 4787957
 1. [专家评高考语文试题](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D7%A8%BC%D2%C6%C0%B8%DF%BF%BC%D3%EF%CE%C4%CA%D4%CC%E2) 4769845
@@ -28,9 +29,9 @@
 1. [中国女排2-3不敌比利时女排](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%C5%AE%C5%C52-3%B2%BB%B5%D0%B1%C8%C0%FB%CA%B1%C5%AE%C5%C5) 4595737
 1. [看过觉醒年代的都在窃喜](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BF%B4%B9%FD%BE%F5%D0%D1%C4%EA%B4%FA%B5%C4%B6%BC%D4%DA%C7%D4%CF%B2) 4579929
 1. [这些地方考生注意防暑降温](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%E2%D0%A9%B5%D8%B7%BD%BF%BC%C9%FA%D7%A2%D2%E2%B7%C0%CA%EE%BD%B5%CE%C2) 4520696
+1. [复读生欲弃考好友请假跨省陪考](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B8%B4%B6%C1%C9%FA%D3%FB%C6%FA%BF%BC%BA%C3%D3%D1%C7%EB%BC%D9%BF%E7%CA%A1%C5%E3%BF%BC) 4485695
 1. [深圳龙岗新增1例新冠肺炎确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%EE%DB%DA%C1%FA%B8%DA%D0%C2%D4%F61%C0%FD%D0%C2%B9%DA%B7%CE%D1%D7%C8%B7%D5%EF%B2%A1%C0%FD) 4477350
 1. [送考车辆发生事故先考试后处理](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%CD%BF%BC%B3%B5%C1%BE%B7%A2%C9%FA%CA%C2%B9%CA%CF%C8%BF%BC%CA%D4%BA%F3%B4%A6%C0%ED) 4451913
-1. [复读生欲弃考好友请假跨省陪考](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B8%B4%B6%C1%C9%FA%D3%FB%C6%FA%BF%BC%BA%C3%D3%D1%C7%EB%BC%D9%BF%E7%CA%A1%C5%E3%BF%BC) 4427967
 1. [直播：2021高考首日](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%B1%B2%A5%A3%BA2021%B8%DF%BF%BC%CA%D7%C8%D5) 4406824
 1. [考生因太紧张连续2天丢失身份证](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BF%BC%C9%FA%D2%F2%CC%AB%BD%F4%D5%C5%C1%AC%D0%F82%CC%EC%B6%AA%CA%A7%C9%ED%B7%DD%D6%A4) 4403798
 1. [全国共2个高风险区12个中风险区](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%B9%FA%B9%B22%B8%F6%B8%DF%B7%E7%CF%D5%C7%F812%B8%F6%D6%D0%B7%E7%CF%D5%C7%F8) 4372865
@@ -39,17 +40,19 @@
 1. [高考考生因衣服拉链过不了仪器](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B8%DF%BF%BC%BF%BC%C9%FA%D2%F2%D2%C2%B7%FE%C0%AD%C1%B4%B9%FD%B2%BB%C1%CB%D2%C7%C6%F7) 4317606
 1. [北京考生:数学“难哭了”](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%B1%BE%A9%BF%BC%C9%FA%3A%CA%FD%D1%A7%A1%B0%C4%D1%BF%DE%C1%CB%A1%B1) 4307539
 1. [女孩高考前坐末班车给司机留纸条](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%AE%BA%A2%B8%DF%BF%BC%C7%B0%D7%F8%C4%A9%B0%E0%B3%B5%B8%F8%CB%BE%BB%FA%C1%F4%D6%BD%CC%F5) 4286050
+1. [广州2名确诊考生在医院参加高考](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%D6%DD2%C3%FB%C8%B7%D5%EF%BF%BC%C9%FA%D4%DA%D2%BD%D4%BA%B2%CE%BC%D3%B8%DF%BF%BC) 4281710
 1. [老人提供两张床让考生免费午休](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%CF%C8%CB%CC%E1%B9%A9%C1%BD%D5%C5%B4%B2%C8%C3%BF%BC%C9%FA%C3%E2%B7%D1%CE%E7%D0%DD) 4278364
 1. [芯片价格飙涨5倍](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%BE%C6%AC%BC%DB%B8%F1%EC%AD%D5%C75%B1%B6) 4247656
-1. [广州2名确诊考生在医院参加高考](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%D6%DD2%C3%FB%C8%B7%D5%EF%BF%BC%C9%FA%D4%DA%D2%BD%D4%BA%B2%CE%BC%D3%B8%DF%BF%BC) 4230257
 1. [女子超市偷4000元巧克力只嚼不咽](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%AE%D7%D3%B3%AC%CA%D0%CD%B54000%D4%AA%C7%C9%BF%CB%C1%A6%D6%BB%BD%C0%B2%BB%D1%CA) 4194071
 1. [西安考场外紧张到没有灵魂的爸爸](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%F7%B0%B2%BF%BC%B3%A1%CD%E2%BD%F4%D5%C5%B5%BD%C3%BB%D3%D0%C1%E9%BB%EA%B5%C4%B0%D6%B0%D6) 4191375
 1. [抢七大战快船淘汰独行侠](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C7%C0%C6%DF%B4%F3%D5%BD%BF%EC%B4%AC%CC%D4%CC%AD%B6%C0%D0%D0%CF%C0) 4158577
 1. [华为已捐献鸿蒙全部基础能力](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BB%AA%CE%AA%D2%D1%BE%E8%CF%D7%BA%E8%C3%C9%C8%AB%B2%BF%BB%F9%B4%A1%C4%DC%C1%A6) 4095015
 1. [31省份新增确诊19例 本土5例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%B7%DD%D0%C2%D4%F6%C8%B7%D5%EF19%C0%FD%20%B1%BE%CD%C15%C0%FD) 4074405
+1. [中国女排1-3不敌塞尔维亚女排](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%C5%AE%C5%C51-3%B2%BB%B5%D0%C8%FB%B6%FB%CE%AC%D1%C7%C5%AE%C5%C5) 4047905
 1. [河南鹤壁煤矿事故8名失联人员遇难](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%C4%CF%BA%D7%B1%DA%C3%BA%BF%F3%CA%C2%B9%CA8%C3%FB%CA%A7%C1%AA%C8%CB%D4%B1%D3%F6%C4%D1) 4043113
 1. [陕西有一块985和211路牌](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%C2%CE%F7%D3%D0%D2%BB%BF%E9985%BA%CD211%C2%B7%C5%C6) 3990543
 1. [清华学生用方言为家乡考生加油](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C7%E5%BB%AA%D1%A7%C9%FA%D3%C3%B7%BD%D1%D4%CE%AA%BC%D2%CF%E7%BF%BC%C9%FA%BC%D3%D3%CD) 3877757
+1. [无人机拍下野象群睡觉休息画面](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%DE%C8%CB%BB%FA%C5%C4%CF%C2%D2%B0%CF%F3%C8%BA%CB%AF%BE%F5%D0%DD%CF%A2%BB%AD%C3%E6) 3848125
 1. [40岁父亲为教育叛逆儿子参加高考](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=40%CB%EA%B8%B8%C7%D7%CE%AA%BD%CC%D3%FD%C5%D1%C4%E6%B6%F9%D7%D3%B2%CE%BC%D3%B8%DF%BF%BC) 3802848
 1. [外交部回应三名美议员乘军机访台](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%E2%BD%BB%B2%BF%BB%D8%D3%A6%C8%FD%C3%FB%C3%C0%D2%E9%D4%B1%B3%CB%BE%FC%BB%FA%B7%C3%CC%A8) 3784706
 1. [教育部发布高考前提醒](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%CC%D3%FD%B2%BF%B7%A2%B2%BC%B8%DF%BF%BC%C7%B0%CC%E1%D0%D1) 3767856
@@ -64,7 +67,6 @@
 1. [恒大回应“商票未及时兑付”](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%E3%B4%F3%BB%D8%D3%A6%A1%B0%C9%CC%C6%B1%CE%B4%BC%B0%CA%B1%B6%D2%B8%B6%A1%B1) 3526586
 1. [国足主帅李铁谈对阵菲律宾](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FA%D7%E3%D6%F7%CB%A7%C0%EE%CC%FA%CC%B8%B6%D4%D5%F3%B7%C6%C2%C9%B1%F6) 3521727
 1. [七国集团就最低企业税率达成协议](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C6%DF%B9%FA%BC%AF%CD%C5%BE%CD%D7%EE%B5%CD%C6%F3%D2%B5%CB%B0%C2%CA%B4%EF%B3%C9%D0%AD%D2%E9) 3519007
-1. [无人机拍下野象群睡觉休息画面](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CE%DE%C8%CB%BB%FA%C5%C4%CF%C2%D2%B0%CF%F3%C8%BA%CB%AF%BE%F5%D0%DD%CF%A2%BB%AD%C3%E6) 3503057
 1. [54岁考生梁实笑着走出考场](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=54%CB%EA%BF%BC%C9%FA%C1%BA%CA%B5%D0%A6%D7%C5%D7%DF%B3%F6%BF%BC%B3%A1) 3385951
 1. [全国唯一高考专列第19次开行](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%AB%B9%FA%CE%A8%D2%BB%B8%DF%BF%BC%D7%A8%C1%D0%B5%DA19%B4%CE%BF%AA%D0%D0) 3377644
 1. [河南鹤壁煤矿事故已致4死](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%C4%CF%BA%D7%B1%DA%C3%BA%BF%F3%CA%C2%B9%CA%D2%D1%D6%C24%CB%C0) 3371762
@@ -106,8 +108,8 @@
 1. [广州护士妈妈遗憾送考旗袍没穿上](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%D6%DD%BB%A4%CA%BF%C2%E8%C2%E8%D2%C5%BA%B6%CB%CD%BF%BC%C6%EC%C5%DB%C3%BB%B4%A9%C9%CF) 2355608
 1. [佛山实施分级分类精准防控](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B7%F0%C9%BD%CA%B5%CA%A9%B7%D6%BC%B6%B7%D6%C0%E0%BE%AB%D7%BC%B7%C0%BF%D8) 2329845
 1. [巴基斯坦火车相撞 超30人死亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%CD%BB%F9%CB%B9%CC%B9%BB%F0%B3%B5%CF%E0%D7%B2%20%B3%AC30%C8%CB%CB%C0%CD%F6) 2292204
+1. [民政部曝光8家涉嫌非法社会组织](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%F1%D5%FE%B2%BF%C6%D8%B9%E28%BC%D2%C9%E6%CF%D3%B7%C7%B7%A8%C9%E7%BB%E1%D7%E9%D6%AF) 2263891
 1. [南非一艾滋病患者同时感染新冠](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%CF%B7%C7%D2%BB%B0%AC%D7%CC%B2%A1%BB%BC%D5%DF%CD%AC%CA%B1%B8%D0%C8%BE%D0%C2%B9%DA) 2236797
-1. [民政部曝光8家涉嫌非法社会组织](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%F1%D5%FE%B2%BF%C6%D8%B9%E28%BC%D2%C9%E6%CF%D3%B7%C7%B7%A8%C9%E7%BB%E1%D7%E9%D6%AF) 2226862
 1. [女硕士拒绝追求者被杀 家属发声](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%AE%CB%B6%CA%BF%BE%DC%BE%F8%D7%B7%C7%F3%D5%DF%B1%BB%C9%B1%20%BC%D2%CA%F4%B7%A2%C9%F9) 2160016
 1. [广州疫情感染链17天增至110人](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%D6%DD%D2%DF%C7%E9%B8%D0%C8%BE%C1%B417%CC%EC%D4%F6%D6%C1110%C8%CB) 2150046
 1. [女子带娃学车教练成临时保姆](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%AE%D7%D3%B4%F8%CD%DE%D1%A7%B3%B5%BD%CC%C1%B7%B3%C9%C1%D9%CA%B1%B1%A3%C4%B7) 2144706
