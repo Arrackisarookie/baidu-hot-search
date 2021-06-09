@@ -14,19 +14,19 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-06-09 19:18:06
+最后更新时间 2021-06-09 20:31:38
 
-1. [广东新增8例本土确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%B6%AB%D0%C2%D4%F68%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF%B2%A1%C0%FD) 4994137
+1. [广东新增8例本土确诊病例](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%B6%AB%D0%C2%D4%F68%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF%B2%A1%C0%FD) 4998838
 1. [多地高考结束](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%E0%B5%D8%B8%DF%BF%BC%BD%E1%CA%F8) 4986892
 1. [教育部通报湖北高考生作弊细节](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%CC%D3%FD%B2%BF%CD%A8%B1%A8%BA%FE%B1%B1%B8%DF%BF%BC%C9%FA%D7%F7%B1%D7%CF%B8%BD%DA) 4895871
 1. [法国总统马克龙访问行程中突遭掌掴](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B7%A8%B9%FA%D7%DC%CD%B3%C2%ED%BF%CB%C1%FA%B7%C3%CE%CA%D0%D0%B3%CC%D6%D0%CD%BB%D4%E2%D5%C6%DE%E2) 4870026
 1. [对疑似高考作弊信号立即排查定位](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%D4%D2%C9%CB%C6%B8%DF%BF%BC%D7%F7%B1%D7%D0%C5%BA%C5%C1%A2%BC%B4%C5%C5%B2%E9%B6%A8%CE%BB) 4784473
 1. [今年城乡居民医保个人缴费标准公布](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%F1%C4%EA%B3%C7%CF%E7%BE%D3%C3%F1%D2%BD%B1%A3%B8%F6%C8%CB%BD%C9%B7%D1%B1%EA%D7%BC%B9%AB%B2%BC) 4772312
 1. [广州核酸大排查共发现阳性40人](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%D6%DD%BA%CB%CB%E1%B4%F3%C5%C5%B2%E9%B9%B2%B7%A2%CF%D6%D1%F4%D0%D440%C8%CB) 4759244
+1. [掌掴马克龙男子身份曝光](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C6%DE%E2%C2%ED%BF%CB%C1%FA%C4%D0%D7%D3%C9%ED%B7%DD%C6%D8%B9%E2) 4705177
 1. [广州零号病例仍未找到](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%D6%DD%C1%E3%BA%C5%B2%A1%C0%FD%C8%D4%CE%B4%D5%D2%B5%BD) 4699280
 1. [马克龙回应被掌掴](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C2%ED%BF%CB%C1%FA%BB%D8%D3%A6%B1%BB%D5%C6%DE%E2) 4690628
 1. [2022QS世界大学排名公布](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=2022QS%CA%C0%BD%E7%B4%F3%D1%A7%C5%C5%C3%FB%B9%AB%B2%BC) 4686728
-1. [掌掴马克龙男子身份曝光](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C6%DE%E2%C2%ED%BF%CB%C1%FA%C4%D0%D7%D3%C9%ED%B7%DD%C6%D8%B9%E2) 4665305
 1. [张常宁爆发轰36分](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D5%C5%B3%A3%C4%FE%B1%AC%B7%A2%BA%E436%B7%D6) 4629438
 1. [大妈嫌让座慢辱骂乘客被行拘](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B4%F3%C2%E8%CF%D3%C8%C3%D7%F9%C2%FD%C8%E8%C2%EE%B3%CB%BF%CD%B1%BB%D0%D0%BE%D0) 4604438
 1. [中财大男生在女厕偷拍被开除学籍](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B2%C6%B4%F3%C4%D0%C9%FA%D4%DA%C5%AE%B2%DE%CD%B5%C5%C4%B1%BB%BF%AA%B3%FD%D1%A7%BC%AE) 4602167
@@ -66,6 +66,7 @@
 1. [特斯拉维权女车主:越来越多污名化](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%CB%B9%C0%AD%CE%AC%C8%A8%C5%AE%B3%B5%D6%F7%3A%D4%BD%C0%B4%D4%BD%B6%E0%CE%DB%C3%FB%BB%AF) 3853769
 1. [印度总理:将为民众免费提供疫苗](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A1%B6%C8%D7%DC%C0%ED%3A%BD%AB%CE%AA%C3%F1%D6%DA%C3%E2%B7%D1%CC%E1%B9%A9%D2%DF%C3%E7) 3853510
 1. [特朗普称比特币是一个骗局](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CC%D8%C0%CA%C6%D5%B3%C6%B1%C8%CC%D8%B1%D2%CA%C7%D2%BB%B8%F6%C6%AD%BE%D6) 3788492
+1. [女子因害怕打针当众被老公打](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%AE%D7%D3%D2%F2%BA%A6%C5%C2%B4%F2%D5%EB%B5%B1%D6%DA%B1%BB%C0%CF%B9%AB%B4%F2) 3781180
 1. [外交部回应《反外国制裁法》立法](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%E2%BD%BB%B2%BF%BB%D8%D3%A6%A1%B6%B7%B4%CD%E2%B9%FA%D6%C6%B2%C3%B7%A8%A1%B7%C1%A2%B7%A8) 3752742
 1. [考生鞋子坏了 老师让鞋赤脚护考](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BF%BC%C9%FA%D0%AC%D7%D3%BB%B5%C1%CB%20%C0%CF%CA%A6%C8%C3%D0%AC%B3%E0%BD%C5%BB%A4%BF%BC) 3747200
 1. [深圳警方辟谣《倾城之恋2021》](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C9%EE%DB%DA%BE%AF%B7%BD%B1%D9%D2%A5%A1%B6%C7%E3%B3%C7%D6%AE%C1%B52021%A1%B7) 3682123
@@ -80,6 +81,7 @@
 1. [蒋方舟回应获日方资助宣传日本](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%AF%B7%BD%D6%DB%BB%D8%D3%A6%BB%F1%C8%D5%B7%BD%D7%CA%D6%FA%D0%FB%B4%AB%C8%D5%B1%BE) 3388165
 1. [警方通报四川南充一男子坠楼身亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BE%AF%B7%BD%CD%A8%B1%A8%CB%C4%B4%A8%C4%CF%B3%E4%D2%BB%C4%D0%D7%D3%D7%B9%C2%A5%C9%ED%CD%F6) 3382958
 1. [国内油价将迎年内第八次上调](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%FA%C4%DA%D3%CD%BC%DB%BD%AB%D3%AD%C4%EA%C4%DA%B5%DA%B0%CB%B4%CE%C9%CF%B5%F7) 3342478
+1. [清华学霸婚礼宾客高考均分680](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C7%E5%BB%AA%D1%A7%B0%D4%BB%E9%C0%F1%B1%F6%BF%CD%B8%DF%BF%BC%BE%F9%B7%D6680) 3308715
 1. [第十四届全运会马拉松资格赛取消](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B5%DA%CA%AE%CB%C4%BD%EC%C8%AB%D4%CB%BB%E1%C2%ED%C0%AD%CB%C9%D7%CA%B8%F1%C8%FC%C8%A1%CF%FB) 3288910
 1. [高三男班主任穿旗袍给学生送考](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B8%DF%C8%FD%C4%D0%B0%E0%D6%F7%C8%CE%B4%A9%C6%EC%C5%DB%B8%F8%D1%A7%C9%FA%CB%CD%BF%BC) 3257807
 1. [世预赛阿根廷被绝平](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%C0%D4%A4%C8%FC%B0%A2%B8%F9%CD%A2%B1%BB%BE%F8%C6%BD) 3236886
@@ -98,11 +100,14 @@
 1. [撒贝宁变高考押题小能手](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C8%F6%B1%B4%C4%FE%B1%E4%B8%DF%BF%BC%D1%BA%CC%E2%D0%A1%C4%DC%CA%D6) 2820735
 1. [李佳航喊话造谣者](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%EE%BC%D1%BA%BD%BA%B0%BB%B0%D4%EC%D2%A5%D5%DF) 2771019
 1. [美批准18年来首款阿尔茨海默病新药](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%C5%FA%D7%BC18%C4%EA%C0%B4%CA%D7%BF%EE%B0%A2%B6%FB%B4%C4%BA%A3%C4%AC%B2%A1%D0%C2%D2%A9) 2749040
+1. [新疆处理14名高考违纪作弊考生](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%BD%AE%B4%A6%C0%ED14%C3%FB%B8%DF%BF%BC%CE%A5%BC%CD%D7%F7%B1%D7%BF%BC%C9%FA) 2668691
 1. [东京奥组委将用GPS追踪记者](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%AB%BE%A9%B0%C2%D7%E9%CE%AF%BD%AB%D3%C3GPS%D7%B7%D7%D9%BC%C7%D5%DF) 2640481
 1. [汪小菲:不要再占着公共资源了](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CD%F4%D0%A1%B7%C6%3A%B2%BB%D2%AA%D4%D9%D5%BC%D7%C5%B9%AB%B9%B2%D7%CA%D4%B4%C1%CB) 2586789
 1. [CBA选秀大会将于7月18日举行](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=CBA%D1%A1%D0%E3%B4%F3%BB%E1%BD%AB%D3%DA7%D4%C218%C8%D5%BE%D9%D0%D0) 2337698
 1. [2020年中国“医保账单”出炉](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=2020%C4%EA%D6%D0%B9%FA%A1%B0%D2%BD%B1%A3%D5%CB%B5%A5%A1%B1%B3%F6%C2%AF) 2328783
+1. [波兰军事演习一战机突向友机开火](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B2%A8%C0%BC%BE%FC%CA%C2%D1%DD%CF%B0%D2%BB%D5%BD%BB%FA%CD%BB%CF%F2%D3%D1%BB%FA%BF%AA%BB%F0) 2283149
 1. [美国一州确认首例汉坦病毒感染者](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%D2%BB%D6%DD%C8%B7%C8%CF%CA%D7%C0%FD%BA%BA%CC%B9%B2%A1%B6%BE%B8%D0%C8%BE%D5%DF) 2166210
+1. [3车站今起可刷身份证查验粤康码](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=3%B3%B5%D5%BE%BD%F1%C6%F0%BF%C9%CB%A2%C9%ED%B7%DD%D6%A4%B2%E9%D1%E9%D4%C1%BF%B5%C2%EB) 2164212
 1. [复旦大学数学科学学院书记遇害身亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B8%B4%B5%A9%B4%F3%D1%A7%CA%FD%D1%A7%BF%C6%D1%A7%D1%A7%D4%BA%CA%E9%BC%C7%D3%F6%BA%A6%C9%ED%CD%F6) 2097691
 <!-- Rank End -->
 
