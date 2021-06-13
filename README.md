@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-06-13 15:20:26
+最后更新时间 2021-06-13 16:20:41
 
 1. [广东新增本土确诊6例 均在广州](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%B6%AB%D0%C2%D4%F6%B1%BE%CD%C1%C8%B7%D5%EF6%C0%FD%20%BE%F9%D4%DA%B9%E3%D6%DD) 4996450
 1. [湖北十堰燃气爆炸已致12人死亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%FE%B1%B1%CA%AE%D1%DF%C8%BC%C6%F8%B1%AC%D5%A8%D2%D1%D6%C212%C8%CB%CB%C0%CD%F6) 4959128
@@ -25,7 +25,7 @@
 1. [广州封闭区居民包3千个粽子赠邻里](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%D6%DD%B7%E2%B1%D5%C7%F8%BE%D3%C3%F1%B0%FC3%C7%A7%B8%F6%F4%D5%D7%D3%D4%F9%C1%DA%C0%EF) 4865214
 1. [湖北十堰爆炸事故致11死37重伤](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%FE%B1%B1%CA%AE%D1%DF%B1%AC%D5%A8%CA%C2%B9%CA%D6%C211%CB%C037%D6%D8%C9%CB) 4863377
 1. [李宇春拆字舞台](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%EE%D3%EE%B4%BA%B2%F0%D7%D6%CE%E8%CC%A8) 4793020
-1. [端午五彩洛神惊艳演绎水下飞天](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%CB%CE%E7%CE%E5%B2%CA%C2%E5%C9%F1%BE%AA%D1%DE%D1%DD%D2%EF%CB%AE%CF%C2%B7%C9%CC%EC) 4782758
+1. [端午五彩洛神惊艳演绎水下飞天](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%CB%CE%E7%CE%E5%B2%CA%C2%E5%C9%F1%BE%AA%D1%DE%D1%DD%D2%EF%CB%AE%CF%C2%B7%C9%CC%EC) 4783565
 1. [广东成立疫情防控问责联合调查组](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%B6%AB%B3%C9%C1%A2%D2%DF%C7%E9%B7%C0%BF%D8%CE%CA%D4%F0%C1%AA%BA%CF%B5%F7%B2%E9%D7%E9) 4777627
 1. [G7领导人和拜登就中国问题发生争执](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=G7%C1%EC%B5%BC%C8%CB%BA%CD%B0%DD%B5%C7%BE%CD%D6%D0%B9%FA%CE%CA%CC%E2%B7%A2%C9%FA%D5%F9%D6%B4) 4744211
 1. [湖北十堰一小区燃气爆炸 多人被困](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%FE%B1%B1%CA%AE%D1%DF%D2%BB%D0%A1%C7%F8%C8%BC%C6%F8%B1%AC%D5%A8%20%B6%E0%C8%CB%B1%BB%C0%A7) 4691030
@@ -56,18 +56,19 @@
 1. [云南德宏州盈江县发生5.0级地震](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%C6%C4%CF%B5%C2%BA%EA%D6%DD%D3%AF%BD%AD%CF%D8%B7%A2%C9%FA5.0%BC%B6%B5%D8%D5%F0) 3686097
 1. [宋雨琦夏天穿貂跳舞](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CB%CE%D3%EA%E7%F9%CF%C4%CC%EC%B4%A9%F5%F5%CC%F8%CE%E8) 3597498
 1. [埃里克森心脏一度停止跳动](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B0%A3%C0%EF%BF%CB%C9%AD%D0%C4%D4%E0%D2%BB%B6%C8%CD%A3%D6%B9%CC%F8%B6%AF) 3586839
+1. [湖北十堰成立抢险救援指挥部](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%FE%B1%B1%CA%AE%D1%DF%B3%C9%C1%A2%C7%C0%CF%D5%BE%C8%D4%AE%D6%B8%BB%D3%B2%BF) 3544629
 1. [吉林大娘冒雨头顶一盆粽子送给民警](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BC%AA%C1%D6%B4%F3%C4%EF%C3%B0%D3%EA%CD%B7%B6%A5%D2%BB%C5%E8%F4%D5%D7%D3%CB%CD%B8%F8%C3%F1%BE%AF) 3472156
 1. [揭秘水下舞蹈《祈》:50秒换一次气](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BD%D2%C3%D8%CB%AE%CF%C2%CE%E8%B5%B8%A1%B6%C6%ED%A1%B7%3A50%C3%EB%BB%BB%D2%BB%B4%CE%C6%F8) 3465906
 1. [马伯骞乃万合作舞台](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C2%ED%B2%AE%E5%B9%C4%CB%CD%F2%BA%CF%D7%F7%CE%E8%CC%A8) 3375308
 1. [朱婷回来了](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%EC%E6%C3%BB%D8%C0%B4%C1%CB) 3355362
 1. [湖州特警飞鹰亮剑](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%FE%D6%DD%CC%D8%BE%AF%B7%C9%D3%A5%C1%C1%BD%A3) 3183352
-1. [《兰陵王入阵曲》震撼耳膜](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%A1%B6%C0%BC%C1%EA%CD%F5%C8%EB%D5%F3%C7%FA%A1%B7%D5%F0%BA%B3%B6%FA%C4%A4) 3149082
+1. [《兰陵王入阵曲》震撼耳膜](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%A1%B6%C0%BC%C1%EA%CD%F5%C8%EB%D5%F3%C7%FA%A1%B7%D5%F0%BA%B3%B6%FA%C4%A4) 3165158
 1. [英国女王G7峰会上用剑切蛋糕](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D3%A2%B9%FA%C5%AE%CD%F5G7%B7%E5%BB%E1%C9%CF%D3%C3%BD%A3%C7%D0%B5%B0%B8%E2) 3085133
 1. [端午出行看过来！这些景点最热门](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B6%CB%CE%E7%B3%F6%D0%D0%BF%B4%B9%FD%C0%B4%A3%A1%D5%E2%D0%A9%BE%B0%B5%E3%D7%EE%C8%C8%C3%C5) 2897749
 1. [欧洲杯：比利时3-0俄罗斯](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C5%B7%D6%DE%B1%AD%A3%BA%B1%C8%C0%FB%CA%B13-0%B6%ED%C2%DE%CB%B9) 2886025
 1. [BOSS直聘上市首日股价大涨](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=BOSS%D6%B1%C6%B8%C9%CF%CA%D0%CA%D7%C8%D5%B9%C9%BC%DB%B4%F3%D5%C7) 2785710
+1. [十堰爆炸 疑有消防员头部受伤](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AE%D1%DF%B1%AC%D5%A8%20%D2%C9%D3%D0%CF%FB%B7%C0%D4%B1%CD%B7%B2%BF%CA%DC%C9%CB) 2784821
 1. [31省份新增确诊34例:本土6例在广东](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=31%CA%A1%B7%DD%D0%C2%D4%F6%C8%B7%D5%EF34%C0%FD%3A%B1%BE%CD%C16%C0%FD%D4%DA%B9%E3%B6%AB) 2769165
-1. [湖北十堰成立抢险救援指挥部](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%FE%B1%B1%CA%AE%D1%DF%B3%C9%C1%A2%C7%C0%CF%D5%BE%C8%D4%AE%D6%B8%BB%D3%B2%BF) 2744604
 1. [倪妮刘浩存在张艺谋面前哭了](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%DF%C4%DD%C1%F5%BA%C6%B4%E6%D4%DA%D5%C5%D2%D5%C4%B1%C3%E6%C7%B0%BF%DE%C1%CB) 2697858
 1. [林汝为逝世 曾执导《四世同堂》](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C1%D6%C8%EA%CE%AA%CA%C5%CA%C0%20%D4%F8%D6%B4%B5%BC%A1%B6%CB%C4%CA%C0%CD%AC%CC%C3%A1%B7) 2676637
 1. [辽宁抚顺村民发现猫科动物踪迹](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C1%C9%C4%FE%B8%A7%CB%B3%B4%E5%C3%F1%B7%A2%CF%D6%C3%A8%BF%C6%B6%AF%CE%EF%D7%D9%BC%A3) 2617024
