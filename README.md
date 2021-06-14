@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-06-14 20:29:47
+最后更新时间 2021-06-14 21:29:19
 
 1. [中国第一股民“杨百万”去世](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%B5%DA%D2%BB%B9%C9%C3%F1%A1%B0%D1%EE%B0%D9%CD%F2%A1%B1%C8%A5%CA%C0) 4995907
 1. [河南卫视《端午奇妙游》完整版](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%C4%CF%CE%C0%CA%D3%A1%B6%B6%CB%CE%E7%C6%E6%C3%EE%D3%CE%A1%B7%CD%EA%D5%FB%B0%E6) 4986565
@@ -29,7 +29,7 @@
 1. [中国女排3-1多米尼加](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%C5%AE%C5%C53-1%B6%E0%C3%D7%C4%E1%BC%D3) 4663660
 1. [木工大叔包出48种造型粽](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C4%BE%B9%A4%B4%F3%CA%E5%B0%FC%B3%F648%D6%D6%D4%EC%D0%CD%F4%D5) 4592039
 1. [中央就十堰爆炸事故发出重要提醒](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%D1%EB%BE%CD%CA%AE%D1%DF%B1%AC%D5%A8%CA%C2%B9%CA%B7%A2%B3%F6%D6%D8%D2%AA%CC%E1%D0%D1) 4562607
-1. [十堰燃气爆炸事故已致25人死亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AE%D1%DF%C8%BC%C6%F8%B1%AC%D5%A8%CA%C2%B9%CA%D2%D1%D6%C225%C8%CB%CB%C0%CD%F6) 4500351
+1. [十堰燃气爆炸事故已致25人死亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AE%D1%DF%C8%BC%C6%F8%B1%AC%D5%A8%CA%C2%B9%CA%D2%D1%D6%C225%C8%CB%CB%C0%CD%F6) 4557112
 1. [世界献血者日](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%C0%BD%E7%CF%D7%D1%AA%D5%DF%C8%D5) 4496720
 1. [爆炸救援现场 消防员:注意伤者的腰](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B1%AC%D5%A8%BE%C8%D4%AE%CF%D6%B3%A1%20%CF%FB%B7%C0%D4%B1%3A%D7%A2%D2%E2%C9%CB%D5%DF%B5%C4%D1%FC) 4495535
 1. [以色列民众街头庆祝政坛变天](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D2%D4%C9%AB%C1%D0%C3%F1%D6%DA%BD%D6%CD%B7%C7%EC%D7%A3%D5%FE%CC%B3%B1%E4%CC%EC) 4358053
@@ -96,13 +96,13 @@
 1. [美国周末发生3起群体性枪击事件](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%B9%FA%D6%DC%C4%A9%B7%A2%C9%FA3%C6%F0%C8%BA%CC%E5%D0%D4%C7%B9%BB%F7%CA%C2%BC%FE) 2527891
 1. [叙利亚主帅扬言“分割”武磊](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%F0%C0%FB%D1%C7%D6%F7%CB%A7%D1%EF%D1%D4%A1%B0%B7%D6%B8%EE%A1%B1%CE%E4%C0%DA) 2502668
 1. [法网女单克雷茨科娃夺冠](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B7%A8%CD%F8%C5%AE%B5%A5%BF%CB%C0%D7%B4%C4%BF%C6%CD%DE%B6%E1%B9%DA) 2496440
+1. [新加坡总理李显龙发了屈原的诗](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%BC%D3%C6%C2%D7%DC%C0%ED%C0%EE%CF%D4%C1%FA%B7%A2%C1%CB%C7%FC%D4%AD%B5%C4%CA%AB) 2457161
 1. [在水下泡26个小时拍出水下飞天](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D4%DA%CB%AE%CF%C2%C5%DD26%B8%F6%D0%A1%CA%B1%C5%C4%B3%F6%CB%AE%CF%C2%B7%C9%CC%EC) 2385649
 1. [民警狂追女子20层楼保住18万](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%F1%BE%AF%BF%F1%D7%B7%C5%AE%D7%D320%B2%E3%C2%A5%B1%A3%D7%A118%CD%F2) 2360961
 1. [中国男篮14人名单](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D6%D0%B9%FA%C4%D0%C0%BA14%C8%CB%C3%FB%B5%A5) 2298492
 1. [河南濮阳遇特大暴雨城市内涝](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%BA%D3%C4%CF%E5%A7%D1%F4%D3%F6%CC%D8%B4%F3%B1%A9%D3%EA%B3%C7%CA%D0%C4%DA%C0%D4) 2292186
 1. [14日全国高速将迎来返程车流](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=14%C8%D5%C8%AB%B9%FA%B8%DF%CB%D9%BD%AB%D3%AD%C0%B4%B7%B5%B3%CC%B3%B5%C1%F7) 2267646
 1. [美洲杯:巴西3-0委内瑞拉取开门红](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C3%C0%D6%DE%B1%AD%3A%B0%CD%CE%F73-0%CE%AF%C4%DA%C8%F0%C0%AD%C8%A1%BF%AA%C3%C5%BA%EC) 2235791
-1. [新加坡总理李显龙发了屈原的诗](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%D0%C2%BC%D3%C6%C2%D7%DC%C0%ED%C0%EE%CF%D4%C1%FA%B7%A2%C1%CB%C7%FC%D4%AD%B5%C4%CA%AB) 2138844
 1. [成都一食品厂6人掉入废水池身亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B3%C9%B6%BC%D2%BB%CA%B3%C6%B7%B3%A76%C8%CB%B5%F4%C8%EB%B7%CF%CB%AE%B3%D8%C9%ED%CD%F6) 2066659
 1. [老人带粽子鸭蛋看望消防队员](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%C0%CF%C8%CB%B4%F8%F4%D5%D7%D3%D1%BC%B5%B0%BF%B4%CD%FB%CF%FB%B7%C0%B6%D3%D4%B1) 2030612
 <!-- Rank End -->
