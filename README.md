@@ -14,7 +14,7 @@
 
 <!-- Rank Begin -->
 
-最后更新时间 2021-06-15 14:24:25
+最后更新时间 2021-06-15 15:21:39
 
 1. [广东新增2例本土确诊](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%B9%E3%B6%AB%D0%C2%D4%F62%C0%FD%B1%BE%CD%C1%C8%B7%D5%EF) 4986552
 1. [十堰燃气爆炸事故已致25人死亡](http://www.baidu.com/baidu?cl=3&tn=SE_baiduhomet8_jmjb7mjw&rsv_dl=fyb_top&fr=top1000&wd=%CA%AE%D1%DF%C8%BC%C6%F8%B1%AC%D5%A8%CA%C2%B9%CA%D2%D1%D6%C225%C8%CB%CB%C0%CD%F6) 4979482
